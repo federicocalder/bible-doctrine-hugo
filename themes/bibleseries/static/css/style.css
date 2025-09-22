@@ -1,0 +1,150 @@
+/* Clean Bible Series Theme */
+* {
+  margin: 0;
+  padding: 0;
+  box-sizing: border-box;
+}
+
+body {
+  font-family: Georgia, "Times New Roman", serif;
+  line-height: 1.6;
+  color: #333;
+  background: #f9f9f9;
+  max-width: 800px;
+  margin: 0 auto;
+  padding: 20px;
+}
+
+header {
+  text-align: center;
+  margin-bottom: 40px;
+  padding: 40px 0;
+  border-bottom: 3px solid #2c5aa0;
+}
+
+h1 {
+  color: #2c5aa0;
+  font-size: 2.5em;
+  margin-bottom: 10px;
+}
+
+.subtitle {
+  color: #666;
+  font-style: italic;
+  font-size: 1.1em;
+}
+
+nav {
+  margin: 30px 0;
+  text-align: center;
+}
+
+nav a {
+  color: #2c5aa0;
+  text-decoration: none;
+  margin: 0 20px;
+  font-weight: bold;
+  font-size: 1.1em;
+}
+
+nav a:hover {
+  text-decoration: underline;
+}
+
+.series-list {
+  background: white;
+  padding: 30px;
+  border-radius: 8px;
+  box-shadow: 0 2px 10px rgba(0,0,0,0.1);
+  margin: 20px 0;
+}
+
+.series-item {
+  padding: 20px 0;
+  border-bottom: 1px solid #eee;
+}
+
+.series-item:last-child {
+  border-bottom: none;
+}
+
+.series-item h3 {
+  color: #2c5aa0;
+  margin-bottom: 10px;
+}
+
+.series-item a {
+  color: #2c5aa0;
+  text-decoration: none;
+  font-weight: bold;
+}
+
+.series-item a:hover {
+  text-decoration: underline;
+}
+
+.series-description {
+  color: #666;
+  margin-top: 5px;
+}
+
+.post-list {
+  background: white;
+  padding: 30px;
+  border-radius: 8px;
+  box-shadow: 0 2px 10px rgba(0,0,0,0.1);
+}
+
+.post-item {
+  padding: 15px 0;
+  border-bottom: 1px solid #eee;
+}
+
+.post-item:last-child {
+  border-bottom: none;
+}
+
+.post-item h4 {
+  margin-bottom: 5px;
+}
+
+.post-item a {
+  color: #2c5aa0;
+  text-decoration: none;
+}
+
+.post-item a:hover {
+  text-decoration: underline;
+}
+
+.post-date {
+  color: #888;
+  font-size: 0.9em;
+}
+
+article {
+  background: white;
+  padding: 40px;
+  border-radius: 8px;
+  box-shadow: 0 2px 10px rgba(0,0,0,0.1);
+  margin: 20px 0;
+}
+
+article h2 {
+  color: #2c5aa0;
+  margin-bottom: 20px;
+  border-bottom: 2px solid #eee;
+  padding-bottom: 10px;
+}
+
+article p {
+  margin-bottom: 15px;
+}
+
+footer {
+  text-align: center;
+  margin-top: 40px;
+  padding: 20px;
+  color: #666;
+  border-top: 1px solid #eee;
+}

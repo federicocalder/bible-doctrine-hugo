@@ -1,0 +1,8 @@
+baseURL = "https://bible-doctrine.com"
+languageCode = "en-us"
+title = "Bible Doctrine - R.B. Thieme Jr. Teachings"
+theme = "bibleseries"
+
+[params]
+  description = "Transcribed Bible doctrine teachings by R.B. Thieme Jr."
+  author = "R.B. Thieme Jr."

@@ -1,0 +1,22 @@
+{{ define "main" }}
+<div class="series-list">
+    <h2>Bible Study Series</h2>
+    <p>Transcribed teachings by R.B. Thieme Jr., organized by Biblical character and theme.</p>
+    
+    <div class="series-item">
+        <h3><a href="{{ "david" | absURL }}">The David Series</a></h3>
+        <p class="series-description">
+            In-depth study of King David's life, from shepherd boy to Israel's greatest king. 
+            Explore the spiritual lessons from David's victories, failures, and restoration.
+        </p>
+    </div>
+
+    <!-- Future series will be added here -->
+    <div class="series-item" style="opacity: 0.5;">
+        <h3>The Daniel Series <em>(Coming Soon)</em></h3>
+        <p class="series-description">
+            Study of Daniel's prophecies and his unwavering faith in Babylonian captivity.
+        </p>
+    </div>
+</div>
+{{ end }}

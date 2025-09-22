@@ -1,0 +1,12 @@
+name = "bibleseries"
+license = "MIT"
+licenselink = "https://github.com/yourname/yourtheme/blob/master/LICENSE"
+description = "Simple clean theme for Bible series transcriptions"
+homepage = "http://example.com/"
+tags = ["blog", "minimal", "responsive"]
+features = ["blog"]
+min_version = "0.41.0"
+
+[author]
+  name = "Federico Calderon"
+  homepage = "https://grandprix.re"
