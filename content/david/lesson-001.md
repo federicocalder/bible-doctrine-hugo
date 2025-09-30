@@ -248,71 +248,93 @@ At this stage, he was feeling sorry for himself.
 
 And the principle is quite obvious. If you become concerned for your nation because you realize its jeopardy, its status quo of falling apart and being destroyed, it is very easy to go from concern for your nation to personal self-pity, unless you are stabilized by Bible doctrine.
 
-It's a very easy stage to go down from concern for your nation to self-pity, concern for yourself. And that's exactly what has happened to this great prophet. He himself is in a state of reversionism.
+It's a very easy stage to go down from concern for your nation to self-pity, concern for yourself. 
 
-How did it get to the place where he was mourning for Saul? Well, there came a day when Samuel went negative toward doctrine.
+And that's exactly what has happened to this great prophet. He himself is in a state of reversionism.
+
+How did it get to the place where he was mourning for Saul? 
+
+Well, there came a day when Samuel went negative toward doctrine.
 
 And when he did, he began to get scar tissue on the left bank of the soul. And that opened up matiotes, and human viewpoint began to come through this vacuum and attacked his right lobe.
 
 First of all, it attacked his categories, and he began to lose track of the categories of doctrine which he applied daily to his life.
 
-And then his vocabulary began to go and was replaced by the bleeding heart vocabulary of we must love everyone, we must be nice to our enemies, we must give blood plasma to those dirty so-and-sos of North Vietnam, we must be kind to the communists, we must show them the way by disarmament, we must surrender our freedoms and our guns to a mixed-up national federal government, we must give up our freedoms in every area. See, that kind of stuff.
+And then their language starts to shift. Suddenly, it’s all about “being nice,” “accepting everything,” “never judging,” and “keeping the peace no matter what.” They start saying things like, “We just need to love everyone unconditionally,” “don’t stand up to wrong ideas, just go along to get along,” or “let’s give up a few freedoms for the sake of safety and harmony.” Before you know it, their convictions are gone, replaced by trendy slogans and feel-good phrases that sound compassionate but are really empty. That’s how vocabulary changes — and it reveals how far the soul has drifted.
 
-Vocabulary changes. Then we have norms and standards begin to fall apart.
+Then we have norms and standards begin to fall apart.
 
-as the only hope, because Saul is tall, he's handsome, he's very personable, he's clever, he's talented. And so the norms and standards change, and therefore the launching pad gets filled with human viewpoint.
+And no longer does Samuel sees the success of the Thocracy under God but he begins to think as Saul as the only hope, because Saul is tall, he's handsome, he's very personable, he's clever, he's talented. And so the norms and standards change, and therefore the launching pad gets filled with human viewpoint.
 
 Then there is a frantic search for happiness. In Samuel's case, Samuel was a prophet and had a little trend toward asceticism and his old sin nature, so he started by being very legalistic fundamentalist type. He got more legalistic every day in his mourning for Saul.
 
-In addition to that, there was some emotional revolt in his soul, but the great tragedy is the destruction of the edification complex of the soul. Samuel, the prophet, the spiritual leader, is now in a state of reversionism. And in this state of reversionism, he's in trouble. He's mourning for Saul.
+In addition to that, there was some emotional revolt in his soul, but the great tragedy is the destruction of the edification complex of the soul (ECS). 
 
-Saul, of course, was potentially a great king. Again, he's handsome in appearance, he's gifted, he appears to be humble, he had great physical strength, and he also had the ministry of God the Holy Spirit going for him at the beginning of his rule.
+Samuel, the prophet, the spiritual leader, is now in a state of reversionism. And in this state of reversionism, he's in trouble. He's mourning for Saul.
+
+Saul, of course, was potentially a great king. 
+
+Again, he's handsome in appearance, he's gifted, he appears to be humble, he had great physical strength, and he also had the ministry of God the Holy Spirit going for him at the beginning of his rule.
 
 He could have been one of the greatest kings in history, but there's many a slip between the potential and the attainment. Just because a person has human potential, it does not mean that he will ever succeed.
 
-If God doesn't promote you, you're not promoted. This is something that King Saul never learned.
+> If God doesn't promote you, you're not promoted. 
 
-All right, let's look then, one, at the greatest potential of Saul, and two, the failure of Saul. One, the greatest potential of Saul.
+This is something that King Saul never learned.
 
-Sub-point one, he was separated from the rest of Israel by divine appointment. 1 Samuel 10.1 describes how Saul was anointed king over Israel. He was anointed by divine appointment.
+All right, let's look then, 1) at the Grace potential of Saul, and 2) the failure of Saul. 
+
+### The grace potential of Saul.
+
+1) He was separated from the rest of Israel by divine appointment. 1 Samuel 10.1 describes how Saul was anointed king over Israel. He was anointed by divine appointment.
 
 The people wanted a ruler so they could be like other nations. They were wrong, but God still permitted him to be appointed. This was his grace potential.
 
-Secondly, he was encouraged by divine promises. 1 Samuel 10.6 and 7.
+2) he was encouraged by divine promises. 1 Samuel 10: 6 and 7.
 
-Thirdly, he was changed by grace. When he first became king, he responded to doctrine. 1 Samuel 10.9, he responded to the point where he has to be classified as a reversionist.
+3) He was changed by grace. When he first became king, he responded to doctrine. 1 Samuel 10:9, he responded to the point where he has to be classified as a reversionist.
 
-See, a reversionist is an apostate who once liked Bible doctrine. Like many of you, you used to go for Bible doctrine. You used to come to Bible class every night. Now you're nothing but reversionists, and all reversionists have the same problem. Divine discipline.
+A reversionist is an apostate who once liked Bible doctrine. Like many of you, you used to go for Bible doctrine. You used to come to Bible class every night. Now you're nothing but reversionists, and all reversionists have the same problem. Divine discipline.
 
-When you get into reversionism, you start to practice reverse process reversionism. Whereas doctrine used to be the most important thing in your life, you now have other substitutes for doctrine.
+When you get into reversionism, you start to practice reverse process reversionism. 
 
-You have where persons, where the Lord Jesus Christ was first in your life, now you go for inconsequential persons. Where you had, for example, a right woman, you being a right man, now you go for false women. You are involved with inconsequential persons, and you're socially and sexually unfaithful to your right woman.
+Whereas doctrine used to be the most important thing in your life, you now have other substitutes for doctrine.
 
-Here again, you have true friends, and instead you're over here fooling around with your false friends, with the other stupid people that are going down with you. Now, that's the problem.
+Where the Lord Jesus Christ was first in your life, now you go for inconsequential persons. 
 
-One, the problem is that grace can change you, but when you reject the source of grace, which is Bible doctrine, you've had it. So, we have the fact that in the grace potential of King Saul, he was changed by grace, 1 Samuel 10.9.
+You had, for example, a right-woman, you being a right-man, now you go for false women. You are involved with inconsequential persons, and you're socially and sexually unfaithful to your right-woman.
 
-Four, he was assured by his circumstances, also 1 Samuel 10.9. His circumstances gave great encouragement.
+Here again, you have true friends, and instead you're over here fooling around with your false friends, with the other stupid people that are going down with you. That's the problem.
 
-Five, he was blessed in an unusual way by God in a time when the Holy Spirit was limited to a few people. He was moved by the Holy Spirit, 1 Samuel 10.10.
+The problem is that grace can change you, but when you reject the source of grace, which is Bible doctrine, you've had it. So, we have the fact that in the grace potential of King Saul, he was changed by grace, 1 Samuel 10:9.
 
-And six, he was humbled by his prospects, 1 Samuel 10.21 and 22. All of this makes up the grace potential.
+4) he was assured by his circumstances, also 1 Samuel 10.9. His circumstances gave great encouragement.
 
-Saul was a believer in the Lord Jesus Christ, and he had the opportunity of being one of the great kings of all time, of having a very happy and prosperous reign. Instead, he's going to have a totally miserable reign. And the reason is because of triple compound divine discipline.
+5) He was blessed in an unusual way by God in a time when the Holy Spirit was limited to a few people. He was moved by the Holy Spirit, 1 Samuel 10:10.
+
+6) He was humbled by his prospects, 1 Samuel 10: 21 and 22. All of this makes up the grace potential.
+
+Saul was a believer in the Lord Jesus Christ, and he had the opportunity of being one of the great kings of all time, of having a very happy and prosperous reign. 
+
+Instead, he's going to have a totally miserable reign. And the reason is because of triple compound divine discipline.
 
 The first area of discipline to a reversionist is called knocking. Behold, I stand at the door and knock, says the Lord Jesus. That is disciplinary warning to the reversionist in his first stages.
 
 The second stage is intensity. We have the knocking stage. That's discipline. Then it gets worse. All discipline intensifies.
 
-Things that would make you happy make you miserable. You may have a little success with money. It makes you miserable. You have a little success with women or men, whichever the case may be. It makes you miserable. You have a little social life. It makes you miserable.
+Things that would make you happy make you miserable. 
 
-Everything is intensified. This is the intensified stage. And the final stage is dying. The sin unto death.
+You may have a little success with money. It makes you miserable. You have a little success with women or men, whichever the case may be. It makes you miserable. You have a little social life. It makes you miserable.
+
+Everything is intensified. This is the intensified stage. 
+
+And the final stage is dying. The sin unto death.
 
 You die horribly and miserably. We will see all of these things in our study this weekend. The knocking stage. Behold, I stand at the door and knock. Warning that you're in reversionism.
 
 The intensified stage, when all of the discipline gets worse and worse and worse. And finally, the dying stage.
 
-And there are two areas where you can change your mind. You can go positive here and immediately get with doctrine. This is the rebound stage. You can rebound here and turn positive.
+And there are two areas where you can change your mind. You can go positive and immediately get with doctrine. This is the rebound stage. You can rebound here and turn positive.
 
 Repent means to go from negative over to positive. And you can do this by rebounding and getting back with doctrine.
 
@@ -322,43 +344,51 @@ So, one is a rebound stage. The other two are repent stages.
 
 Now, Saul is going to go through all of these stages. And Saul is eventually going to die, the sin unto death.
 
-David is going to go up. It goes into super grace, happiness, and success as Saul goes down. Not at Saul's expense. Because God gives Saul every opportunity.
+David is going to go up, he goes into super grace, happiness, and success as Saul goes down. 
 
-God kept Saul alive for 40 more years in order to give him every opportunity. And over a period of 40 years, he went from the knocking stage to the intensity stage to the dying stage. And eventually, he died miserably.
+Not at Saul's expense. Because God gives Saul every opportunity.
+
+God kept Saul alive for 40 more years in order to give him every opportunity. 
+
+And over a period of 40 years, he went from the knocking stage to the intensity stage to the dying stage. 
+
+And eventually, he died miserably.
 
 In the meantime, he will go through every stage of reversionism. He was, at times, psychotic. He was a psychopathic personality.
 
 He suffered from mental attitude reversionism. He suffered from verbal reversionism. He suffered from almost every system of reversionism. He went through every type of discipline.
 
-In other words, Saul is a person who had everything going for him and turned it all down by his neglect of Bible doctrine. That is the grace potential of King Saul.
+In other words, Saul is a person who had everything going for him and turned it all down by his neglect of Bible doctrine. 
 
-Secondly, let's take a quick look at his failure. One, he died the sin unto death. 1 Chronicles 10, 13, and 14. And the sin unto death is the exception to dying grace. It means to go out horribly and miserably.
+That is the grace potential of King Saul.
 
-Two, he began reversionism by ignoring the Word of God. 1 Samuel 13, 9 through 14. And in that particular passage, he was told to kill the enemy. And there was one enemy, the king, who had a great personality, and he didn't want to kill him. And because he refused to kill the enemy, there he was obviously rejecting the Word of God and obviously got into reversionism.
+Secondly, let's take a quick look at his failure. 
 
-3, therefore, King Saul ignored the will of God. 1 Samuel 15, 3, and 9.
+### The failure of Saul
 
-4, Saul's reversionism is summarized in 1 Samuel 15, 22, and 23.
+1) He died the sin unto death. 1 Chronicles 10, 13, and 14. 
 
-Therefore, 5, Saul is rejected by the Lord. 1 Samuel 15, 35.
+And the sin unto death is the exception to dying grace. It means to go out horribly and miserably.
+
+2) He began reversionism by ignoring the Word of God. 1 Samuel 13:9-14. 
+
+And in that particular passage, he was told to kill the enemy. And there was one enemy, the king, who had a great personality, and he didn't want to kill him. And because he refused to kill the enemy, there he was obviously rejecting the Word of God and obviously got into reversionism.
+
+3) therefore, King Saul ignored the will of God. 1 Samuel 15: 3 and 9.
+
+4) Saul's reversionism is summarized in 1 Samuel 15: 22 and 23.
+
+Therefore, 5) Saul is rejected by the Lord. 1 Samuel 15:35.
 
 Now, when I give you these categorical developments, looking up the verses later and studying them is the basis of blessing. All I can do is analyze and give you something to do.
 
-So, once more, the failure of Saul. Five points. You will have to look these verses up.
+This brings us back to our passage. 
 
-1, Saul died the sin unto death. 1 Chronicles 10, 13, and 14.
+The Lord said unto Samuel, the man who has been the great communicator of doctrine, the last judge, a prophet, he is now turning over his ruling responsibility and has, to King Saul, but he's still a prophet.
 
-2, he began reversionism by ignoring the Word of God. 1 Samuel 13, 9 through 14.
+How long will you feel sorry for yourself and for Saul? 
 
-3, therefore, he ignored the will of God. 1 Samuel 15, 3, and 9.
-
-4, the summary of Saul's reversion. 1 Samuel 15, 22, and 23.
-
-5, Saul is rejected by the Lord. 1 Samuel 15, 35.
-
-Now, this brings us back to our passage. The Lord said unto Samuel, the man who has been the great communicator of doctrine, the last judge, a prophet, he is now turning over his ruling responsibility and has to King Saul, he is still a prophet.
-
-How long will you feel sorry for yourself and for Saul? Remember that he, first of all, he started out being concerned for his nation. Then he moved into self-pity in which he feels sorry for, remember that self-pity includes others.
+Remember that he, first of all, he started out being concerned for his nation. Then he moved into self-pity in which he feels sorry for, remember that self-pity includes others.
 
 How long, Hithpa'el, Samuel, will you feel sorry for yourself? Samuel has a case of feeling sorry for himself.
 
@@ -368,7 +398,7 @@ He is feeling sorry for Saul. He is not, he is not compassionate here, but as an
 
 This is like a gangster feeling sorry for a gangster. This is like a rapist feeling sorry for a rapist. This is like a murderer feeling sorry for a murderer.
 
-This is emotional. This is emotion, actually, what it is, emotional revolt perpetuated into total reversionism.
+This is emotional revolt of the soul perpetuated into total reversionism.
 
 Now, what is the divine view of King Saul? I have rejected the cal perfect of Maas.
 
