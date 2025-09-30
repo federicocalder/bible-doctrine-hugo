@@ -198,19 +198,23 @@ From Moses to Samuel, the problems which accumulated to this nation were fantast
 
 And now we have a possibility of some positive volition again in Israel. And therefore, God provides a communicator.
 
-There's a principle here in the word Samuel. The principle is this. Whenever a nation has among its believers those who are positive toward doctrine, there's a principle. God will provide.
+There's a principle here in the word Samuel. 
+
+The principle is this. Whenever a nation has among its believers those who are positive toward doctrine, there's a principle. God will provide.
 
 He will provide communicators of doctrine. And Samuel was such a person.
 
 Samuel was the son of Hannah. He was born about 1080 B.C., a thousand years before Christ. He replaced the reversionistic sons of Eli.
 
-And in effect, Samuel became not only a prophet, but the last of the judges. After the disastrous defeat of Israel by the Philistines in 1 Samuel 4, verse 1, Samuel does not appear again in the history of the Bible for 20 years, at which time he assembled together the reversionistic people at Mizpah, where he laid it on the line to them, and they repented of their reversionism.
+And in effect, Samuel became not only a prophet, but the last of the judges. 
+
+After the disastrous defeat of Israel by the Philistines in 1 Samuel 4, verse 1, Samuel does not appear again in the history of the Bible for 20 years, at which time he assembled together the reversionistic people at Mizpah, where he laid it on the line to them, and they repented of their reversionism.
 
 At this point, Samuel the prophet became the last judge. That was in 1050 B.C.
 
-We studied last Thanksgiving and last Christmas the Dunghill area, and out of the Dunghill special came this son, Samuel, to Hannah. So we pick up again with Samuel and move right on.
+At the request of the people, Samuel appointed a king over Israel. Now, this was a sign of their failure. 
 
-At the request of the people, Samuel appointed a king over Israel. Now, this was a sign of their failure. This was a sign of human viewpoint.
+This was a sign of human viewpoint.
 
 God was doing a great job for the people. He was holding them together and had held them together for 400 years.
 
@@ -220,19 +224,27 @@ People are always stupid. They observe outwardly without realizing the character
 
 And overtly, King Saul was a very handsome, very attractive, and a very talented person. He had a talent for being clever. He had a talent for winning a few battles through his cleverness.
 
-He had a talent for putting himself over and giving the impression, like so many fundies do today, that he was a very humble and a very sweet person. He also did not have true courage.
+He had a talent for putting himself over and giving the impression, like so many fundamentalist christians do today, that he was a very humble and a very sweet person. He also did not have true courage.
 
 He did not have that moral courage that goes with doctrine in the soul. And when the chips were down, he always failed.
 
-But the Lord said unto Samuel, How long wilt thou mourn? This is a hithpa'el from the verb aval. A-B-A-L.
+But the Lord said unto Samuel, How long wilt thou mourn? 
 
-Now, aval in the hithpa'el stem is reflexive. Hithpa'el means, How long are you going to feel sorry for yourself?
+This is a hithpa'el from the verb aval. A-V-A-L.
 
-The principle is of aval in the hithpa'el, that first of all, Samuel began by being concerned for his nation, for he was truly patriotic. He had enough Bible doctrine.
+Now, aval in the hithpa'el stem is reflexive. 
 
-He had enough understanding of the laws of establishment to realize that his nation was in great jeopardy. But he began to think of Saul as the solution.
+Hithpa'el means, How long are you going to feel sorry for yourself?
 
-And therefore, the hithpa'el of aval indicates that he was mourning for himself. At this stage, he was feeling sorry for himself.
+The principle is of aval in the hithpa'el, that first of all, Samuel began by being concerned for his nation, for he was truly patriotic. 
+
+He had enough Bible doctrine. He had enough understanding of the laws of establishment to realize that his nation was in great jeopardy. 
+
+But he began to think of Saul as the solution.
+
+And therefore, the hithpa'el of aval indicates that he was mourning for himself. 
+
+At this stage, he was feeling sorry for himself.
 
 And the principle is quite obvious. If you become concerned for your nation because you realize its jeopardy, its status quo of falling apart and being destroyed, it is very easy to go from concern for your nation to personal self-pity, unless you are stabilized by Bible doctrine.
 
