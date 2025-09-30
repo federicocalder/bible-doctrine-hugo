@@ -1,5 +1,5 @@
 ---
-title: "I Have Seen A King - David's Anointing and the Failures of Samuel and Saul"
+title: "I Have Seen A King"
 description: "Study of David's life examining God's rejection of Saul, Samuel's mourning, and the divine selection of David as king."
 date: 2025-09-30
 draft: false
@@ -7,9 +7,9 @@ series: "david"
 lesson: 1
 ---
 
-# I Have Seen A King - David Lesson 001 
+# David Lesson 001 
 
-## Failuers of Samuel and Saul
+## Failures of Samuel and Saul
 ### 1 Samuel 16:1-12
 ### Psalm 78:70
 ### 2 Sam 7:8
