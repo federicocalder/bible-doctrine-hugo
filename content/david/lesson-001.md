@@ -840,6 +840,10 @@ He had human viewpoint. He chose the wrong man. Verses 6 and 7.
 
 Skip down now to verses 6 and 7. He finally was persuaded by the Lord to go. So he goes to Bethlehem.
 
+1 Samuel 16:6-7 
+And it came to pass, when they were come, that he looked on Eliab, and said, Surely the Lord's anointed is before him. 
+But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.
+
 And in verse 6, it came to pass, Qal Imperfect of Ha-Yah, when they were come, he looked on Eliab. See, Jesse had to haul his sons in.
 
 Now you remember this bird Eliab. Eliab, he kept looking at him. The Qal Imperfect of Ra-Ah.
@@ -848,7 +852,7 @@ Remember the Qal Imperfect of Ra-Ah in verse 1? I have seen a king. Now we have 
 
 Kept looking at why? He was very handsome. Striking in his appearance. And he also was wearing the... He had just gotten out of military school. He was wearing the uniform of a new second lieutenant in the Jewish army. He made quite an appearance.
 
-as very handsome. Very fine looking. Very nice looking young lad.
+Very handsome. Very fine looking. Very nice looking young lad.
 
 And Samuel is really taken with this guy. He's looking at him from the outward appearance.
 
@@ -874,19 +878,19 @@ Here is a child who is full of mental attitude sins and who also has a sharp, vi
 
 The difference is in the soul. For this is what we have in verse 7.
 
-But the Lord said to Samuel, he decreed to Samuel, Calimperfect of Amar, A-M-A-R. The Lord decreed to Samuel, Look not the hyphial imperfect from Navat. N-A-B-A-T.
+But the Lord said to Samuel, he decreed to Samuel, Qal imperfect of Amar, A-M-A-R. The Lord decreed to Samuel, Look not the hyphial imperfect from Nabat. N-A-B-A-T.
 
-Now, the hyphial stem is causative, active voice. And Navat in the hyphial really means, Do not regard with respect. Also has the negative with it.
+Now, the hyphial stem is causative, active voice. And Nabat in the hyphial really means, Do not regard with respect. Also has the negative with it.
 
-Do not be caused to regard him with respect. You're looking at him from the overt standpoint, principle.
+Do not be caused to regard him with respect. You're looking at him from the overt standpoint, 
 
-You can never truly respect a person till you understand something of their soul. You cannot respect, don't ever respect people on the basis of overt appearance.
+> Principle: You can never truly respect a person till you understand something of their soul. You cannot respect, don't ever respect people on the basis of overt appearance.
 
 It's nice, but it is not the basis of respect. You can appreciate beauty in others, but respect must come from the soul of that person.
 
 And that's where 90% of you have gotten off track at some time in your life. That's why I always loved the Apostle Paul.
 
-He was an ugly person. He was so ugly, he was repulsive. He was short and fat and bald and had a big, fat, hooked nose, a big, rumen nose.
+He was an ugly person. He was so ugly, he was repulsive. He was short and fat and bald and had a big, fat, hooked nose, a big, rumen nose. He had a squeaky voice. 
 
 I'm glad he did. He had more doctrine in his soul than anyone ever lived.
 
@@ -904,31 +908,38 @@ The mouth is the window to the soul. And what a person's really like? Well, all 
 
 Now, here is a man who makes a fantastic appearance. But the Lord said to Samuel, Do not have respect for his face. Or on the height of his stature. He's tall.
 
-Because I have refused him. The calperfect of maas again. M-A-A-S
+Because I have refused him. The Qal perfect of MAAS again. M-A-A-S and this is perfect tense, which means it is permanent. "I have refused him". Third masculine singular suffix refers to Eliab.
 
-And this is perfect tense, which means it is permanent. I have refused him. Third masculine singular suffix refers to Eliab.
+And you will see later on why he was rejected. And he is rejected. He has... And how is he rejected? On the basis of his soul. Not on the basis of his appearance. Not on the basis of his muscles.
 
-And you will see later on why he was rejected. And he is rejected. He has... And how is he rejected?
+"I have refused him". Why? For the Lord sees not as man seeth.
 
-On the basis of his soul. Not on the basis of his appearance. Not on the basis of his muscles.
+And again we have the Qal imperfect of RAAH. 
 
-I have refused him. Why? For the Lord sees not as man seeth.
+In verse 1 we had RAAH for the first time. It's mistranslated in verse 1. You have, I have provided. And it's literally, I have seen.
 
-And again we have the cal imperfect of Ra-A. In verse 1 we had Ra-A for the first time. It's mistranslated in verse 1. You have, I have provided. And it's literally, I have seen.
+Now we have RAAH again. "He sees not as man sees", for man looks on the outward appearance, but the Lord RAAH, the beautiful eyes?  the excellent physique? Not at all: The heart, Hebrew, levh, L-E-V-H. And the heart is the right lobe of the soul. That is the place where all doctrine must reside.
 
-Now we have Ra-A again. He sees not as man sees.
+The heart includes: the memory center and the frame of reference. The vocabulary and categories. The norms and standards and the launching pad. That's what the Lord sees.
 
-the excellent physique. Not at all. The heart, Hebrew, lev, L-E-B-H. And the heart is the right lobe of the soul. That is the place where all doctrine must reside.
+Bible doctrine in the right lobe. The Lord looks on, or literally, the Lord sees, Qal imperfect, keeps seeing the right lobe.
 
-The heart includes the memory center and the frame of reference. The vocabulary and categories. The norms and standards and the launching pad. That's what the Lord sees.
+## Summary 
 
-Bible doctrine in the right lobe. The Lord looks on, or literally, the Lord sees, cal imperfect, keeps seeing the right lobe.
+1) Doctrine in the right lobe is the issue of happiness and grace blessing. 
 
-Summary, point one. Doctrine in the right lobe is the issue of happiness and grace blessing. Doctrine in the right lobe. Not experience, not appearance, not some cleverness whereby you can con people into thinking you are something.
+Not experience, not appearance, not some cleverness whereby you can con people into thinking you are something.
 
-Two. Doctrine in the soul is the basis of divine promotion and protection from divine discipline. Doctrine in the right lobe.
+2) Doctrine in the soul is the basis of divine promotion and protection from divine discipline.
 
-Three. David was God's man. This anticipates the rest of the chapter. Not because of his experience as a shepherd, but because of Bible doctrine in his soul. That's why Psalm 23 is so important. Psalm 23 reflects doctrine in his soul.
+3) David was God's man.
+
+This anticipates the rest of the chapter. 
+Not because of his experience as a shepherd, but because of Bible doctrine in his soul. 
+
+That's why Psalm 23 is so important. 
+
+Psalm 23 reflects doctrine in his soul.
 
 Now, there were hundreds and even thousands of shepherds in Israel. How many of them could write Psalm 23? One person, David, is the only one who could write the 23rd Psalm because he's the only one who had the doctrine to do it.
 
@@ -940,90 +951,70 @@ And yet Saul wound up under the sin unto death, and David wound up being the gre
 
 No, that's what some of the stupid will get out of it. It tells you this, that doctrine in the soul is more important than anything else in life.
 
-Now, some of you will have, God help you, turkey in the body. That isn't going to do a thing for you except give you enough steam to get back here tonight.
+It's doctrine in the soul that counts. It's feeding on the Word.
 
-It's doctrine in the soul that counts. It's feeding on the Word. Man shall not live by turkey alone.
+4) Among the sheep, David learned doctrine and had doctrine tested. 
 
-For among the sheep, David learned doctrine and had doctrine tested. Among the sheep, David learned doctrine and had doctrine tested. But being a shepherd didn't make him great.
+But being a shepherd didn't make him great.
 
-Five. David was a grace product all the way. Therefore, no matter how great David became, only God could take the credit.
+5) David was a grace product all the way. 
+
+Therefore, no matter how great David became, only God could take the credit.
 
 No matter how great David became as a warrior, as a battalion commander. In chapter 18, David's a battalion commander. By the time you get to the end of the book, David is a general. By the time you get into the next book, David is a king.
 
 But no matter how great David becomes, only God can take the credit. Listen, you can get nervous if you ever become successful in something and people begin to think you've done something. Then you can get a little nervous. You can get a twitch or two in your right shoulder blade.
 
-Only God could take the credit. There's no way David could take the credit. There was no way he ever tried. That's the beauty of his greatness.
+> Only God could take the credit. 
+
+There's no way David could take the credit. There was no way he ever tried. That's the beauty of his greatness.
 
 We're talking about a man who's the greatest king who ever lived. We're talking about one of the greatest captains in history. We're talking about a man who succeeded in the best profession there is, the most honorable, the military profession.
 
 We're talking about a man who succeeded as a king. Here is a man who combined a rare system. He succeeded as a soldier and as a civilian. Now that is really something.
 
-He's a grace product all the way. Therefore, only God could take the credit. I refer you again to Psalm 78, 70, 2 Samuel 7, 8, and also 1 Chronicles 17, 7.
+He was the greatest civilian of his day, he was the greatest soldier of his day.
 
-Point six. Furthermore, David passed the test of super grace without human admiration or approbation. 1 Samuel 17, 34 through 36.
+He's a grace product all the way. Therefore, only God could take the credit. I refer you again to Psalm 78:70, 2 Samuel 7:8, and also 1 Chronicles 17:7.
+
+6) Furthermore, David passed the test of super grace without human admiration or approbation. 1 Samuel 17:34-36.
 
 When a lion came and took a lamb, there wasn't anyone standing around cheering David, go out and fight the lion. Go, David, go. Go, David, go. Go, David, go. There wasn't any of that kind of stuff.
 
-And after he had killed a lion without a 375 H&H magnum, he still didn't haul this thing in to the nearest bar, throw them down in the middle of the bar, and say, Hey, the drinks are on me. I just killed a lion. Ooh, you know.
+And after he had killed a lion without a 375 H&H magnum, he still didn't haul this thing in to the nearest bar, throw them down in the middle of the bar, and say, Hey, the drinks are on me. I just killed a lion.
 
 Pitiful, isn't it? The way people always try to cash in on their little successes along the way. You know that David didn't even call a press conference?
 
-Ever called a press conference? No wonder he was great.
+He never called a press conference? No wonder he was great.
 
-Now, point seven. When David passed the lion and the bear test through super grace living, he was ready for anything in life, and the giant was as good as dead.
+7) When David passed the lion and the bear test through super grace living, he was ready for anything in life, and the giant was as good as dead.
 
-All right. Meet the super grace hero. And at the time this was said in verse 11, that's what he was. Verse 11.
+Meet the super grace hero. And at the time this was said in verse 11, that's what he was. Verse 11.
+
+And Samuel said unto Jesse, Are here all thy children? And he said, There remaineth yet the youngest, and, behold, he keepeth the sheep. And Samuel said unto Jesse, Send and fetch him: for we will not sit down till he come hither.
 
 And Samuel said to Jesse, Are here all thy children? See, Samuel went up and down the line of seven boys.
 
 And he said, There remaineth yet the youngest. And behold, get this. I didn't call him in. You could see him holding his nose. He keepeth the sheep.
 
-Cal active participle of Ra-ah. R-A-A-H. This verb, he keepeth the sheep, means he is shepherding.
+Qal active participle of Raah. R-A-A-H. This verb, he keepeth the sheep, means he is shepherding.
 
-And the same Ra-ah is used by David. David could have said, Hey, you're wrong, Dad. The Lord is my shepherd. The Lord is my Ra-ah. Same word in Psalm 23, verse 1.
+And the same Raah is used by David. David could have said, Hey, you're wrong, Dad. The Lord is my shepherd. The Lord is my Raah. Same word in Psalm 23, verse 1.
 
-He keepeth the sheep. And Samuel said to Jesse, get this now, Old English, Send and fetch him. That means bring him. For we will not sit down till he comes.
+He keepeth the sheep. And Samuel said to Jesse, Send and fetch him. That means bring him. For we will not sit down till he comes.
 
-And he sent and brought him. Now get this. He was ruddy. Yeah, uh-huh. What does ruddy mean?
+And he sent, and brought him in. Now he was ruddy, and withal of a beautiful countenance, and goodly to look to. And the Lord said, Arise, anoint him: for this is he.
 
-It's an adjective. Ad-mo-nu. Ad-mo-ni. Looks like this. A-D. M-O-N-I. Means red-headed.
+And he sent and brought him. He was ruddy. It's an adjective. Admoni. Looks like this. A-D-M-O-N-I. Means red-headed.
 
-I don't know if you ever realize, you may think of Jews as only having dark hair, brown hair. But here is a red-headed Jew. And that is an aw.
+I don't know if you ever realize, you may think of Jews as only having dark hair, brown hair. But here is a red-headed Jew. And that isn't all.
 
-He had red hair with not beautiful countenance, but the word is eyes, with beautiful eyes. David had unusually beautiful eyes. He was not a beautiful man. He was a handsome man. But his eyes were beautiful.
+He had red hair with beautiful eyes. David had unusually beautiful eyes. He was not a beautiful man. He was a handsome man. But his eyes were beautiful.
 
-And it says, goodly to look to, which means good-looking. Tov roi. Good-looking. Handsome. T-O-B-H-R-O-I. Tov roi. Handsome.
+And it says, goodly to look to, which means good-looking. "Tobh roi". Good-looking. Handsome. T-O-B-H-R-O-I. Tobh roi. Handsome.
 
 And as the passage then develops it, in verse 12, And the Lord said, Get up, anoint him, this is he.
 
-The word for anoint is a cal-imperative, masach. M-A-S-H-A-C-H. And this particular word means to commission. Give him his commission. This is where we get Mashiach or Messiah.
+The word for anoint is a Qal-imperative, mashach. M-A-S-H-A-C-H. And this particular word means to commission. Give him his commission. This is where we get Mashiach or Messiah.
 
-All right. This then brings us down to the end of our introduction and prepares the way for the Bible conference, which will be continued tonight at 745.
-
-Now with our heads bowed and with our eyes closed. It is just possible that someone has come in here today who has not personally believed in the Lord Jesus Christ. You have not received him as your Savior.
-
-In a few moments in closing, we want to give you the opportunity of making the greatest decision of your life. But we would like to give it to you under perfect conditions of privacy. Therefore, every head bowed and every eye closed.
-
-Jesus Christ was your substitute on the cross. Jesus Christ took your place. He bore your sins in his own body in the tree. He died for you.
-
-And that means that right where you sit right now, you can have eternal life. Believe on the Lord Jesus Christ and thou shalt be saved.
-
-You can't be saved by inviting Christ into your heart, by walking aisles, by being baptized, by tithing. You can only be saved by faith in Christ.
-
-When Jesus was still physically alive on the cross, he said, It is finished. Salvation was completed. Spiritual death had been accomplished by taking our place and bearing our sins.
-
-And because Jesus Christ did the work and said, It is finished. In one second of time, you can enter into eternal salvation.
-
-With your head bowed and your eyes closed, in the privacy of your own soul, you can tell God the Father you are believing in Jesus Christ. And that's the moment of your eternal salvation.
-
-And before you even touch any food today, you have the privilege and the glory and the opportunity of being born into the family of God by faith in Jesus Christ.
-
-For he that believeth on the Son hath everlasting life. And he that believeth not the Son shall not see life, but the wrath of God abideth on him.
-
-We are thankful, Father, that every day is thanksgiving for those who have Bible doctrine. And that every day of our lives, we can be thankful when the dawn comes, and we realize we've been given another day on this earth.
-
-And that all during that day, you have designed something wonderful for us. You have provided everything in grace. And that is a day also which you have made, and we will be glad and rejoice in it, because we have doctrine in the soul.
-
-Now, Father, challenge us to move into supergrace and to get out of reversionism, if that's the case, so that we might fulfill the purpose for which we remain, so that our nation might be preserved through a revival of supergrace, and that we might have the privilege of seeing what God can give to those with capacity.
-
-Therefore, we thank thee for this introductory challenge. In Christ's name, amen.
+All right. This then brings us down to the end of our introduction and prepares the way for the Bible conference.
