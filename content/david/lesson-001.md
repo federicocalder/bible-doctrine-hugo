@@ -438,9 +438,9 @@ You may love people on a meritorious basis. It's pitiful if you do. But God love
 
 And if true love ever comes to you, it's because Bible doctrine will so improve your soul capacity that you will love people on the basis of who and what you are as a super grace believer.
 
-Now, this is encouragement to those of you who might be in reversionism and are already losing your appetite for turkey. God kept Saul alive for 30 more years. Why? Because God wanted, in the worst kind of a way, to share in time.
+God kept Saul alive for 30 more years. Why? Because God wanted, in the worst kind of a way, to share in time.
 
-And can't you see Saul when he comes to heaven? And the Lord meets him there and says, Why do you think I kept you alive for 30 more years? Now you have all of this happiness? You could have had it down there.
+And can't you see Saul when he comes to heaven? And the Lord meets him there and says, Why do you think I kept you alive for 30 more years? Now you have all of this happiness... You could have had it down there.
 
 You've heard of hell on earth. Saul says, Yeah, I had it. You could have had heaven on earth.
 
@@ -452,39 +452,55 @@ God only has the short time of your lifetime as a believer to demonstrate how gr
 
 You're just like a paper bag. Some of you are a little tiny paper bag. And, therefore, that's about all you can get. And some of you are a larger paper bag. And some of you are a big sack. And some of you... I didn't say you were an old bag, just a big one.
 
-All of you have different capacities. That's even obvious today.
-
-See, I'm standing up here. This message is like having a bucket full of milk. Pardon the expression. It makes me shudder. But milk is not my favorite beverage.
-
-And I'm standing up here with a bucket full of milk. And you are like a whole room full of milk bottles. And so I throw out this bucket full of milk.
-
-And some of you get full. And some of you get partially full. And some of you get splattered. And some of you are empty. Well, that's the way this message is.
+All of you have different capacities.
 
 Your capacity for doctrine is your capacity for life. Put it down. Your capacity for doctrine is your capacity for life.
 
-And your capacity for life determines how much God can give you. And God is saying on this thanksgiving of the year of our Lord, 1972 A.D., God is saying, Where is someone that I can give a billion dollars? Where is someone I can give a right man or a right woman and that will be the greatest love of the century? Where is someone in a profession I can endow with success?
+And your capacity for life determines how much God can give you. 
 
-To share my happiness with you in time. I don't want to wait until you come to heaven. It's no contest when you come to heaven. It's automatic.
+And God is saying today of the year of our Lord, 1972 A.D., God is saying, Where is someone that I can give a billion dollars? Where is someone I can give a right man or a right woman and that will be the greatest love of the century? Where is someone in a profession I can endow with success?
 
-Now's the time I want to show you how I can give you happiness. So the issue is a very simple one. Where were you when God was trying to pass out happiness? And some of you are going to have to say I was in reversionism. I wasn't there. And that's the tragedy.
+I want to share my happiness with you in time. I don't want to wait until you come to heaven. It's no contest when you come to heaven. It's automatic. Now's the time I want to show you how I can give you happiness. 
 
-I have rejected him from reigning over Israel. Now get this. The plan of God moves on with or without you, King Saul.
+So the issue is a very simple one. Where were you when God was trying to pass out happiness? 
+
+And some of you are going to have to say I was in reversionism. I wasn't there. And that's the tragedy.
+
+"I have rejected him from reigning over Israel". 
+
+> Now get this. The plan of God moves on... 
+
+With or without you, King Saul.
 
 You had everything going for you in grace. Or you thought you had everything going for you in the energy of the flesh. You thought because you had all those muscles. You thought because you were taller than anyone else.
 
-You thought that because you were handsome. You thought that because you were clever that this was the secret to your success. But the secret to your success was grace. And when you reject grace, listen, what's going to happen to you?
+You thought that because you were handsome. You thought that because you were clever that this was the secret to your success. 
 
-You were going to go right on. The plan of God is going to go right on. And you're going to be sitting there in the dust of your misery, your self-pity, and your eventual death.
+But the secret to your success was grace. 
+
+And when you reject grace, listen, what's going to happen to you?
+
+The plan of God is going to go right on. And you're going to be sitting there in the dust of your misery, your self-pity, and your eventual death.
 
 What a tragedy that a man with so much grace potential has to be left behind. But that's nothing.
 
 If you are here this morning and you have personally believed in the Lord Jesus Christ, you have the same grace potential as King Saul. You have everything going for you and more.
 
-You live in the church age. You are a priest. You are an ambassador for Jesus Christ.
+You live in the church age. 
 
-You have permanently what Saul had temporarily, the indwelling of the Holy Spirit. You have the indwelling of Jesus Christ that Saul did not have. You are in union with Christ, positional truth, something that Saul did not possess.
+You are a priest. 
 
-You have things going for you that are phenomenal. You have everything in writing.
+You are an ambassador for Jesus Christ.
+
+You have permanently what Saul had temporarily, the indwelling of the Holy Spirit. 
+
+You have the indwelling of Jesus Christ that Saul did not have. 
+
+You are in union with Christ, positional truth, something that Saul did not possess.
+
+You have things going for you that are phenomenal. 
+
+You have everything in writing.
 
 Saul had to listen to Samuel. He had to go where Samuel was to get the info. You have it before you in the Word of God.
 
@@ -498,27 +514,45 @@ Wake up! Wake up before it hits intensity. When it hits intensity, you won't hea
 
 You'll be screaming so loud, you won't hear the knocking on the door anymore. And then when you hit the sin unto death, God help you, you're going to be the most miserable person in the world.
 
-And don't call me to come running to your bedside when you're dying or however you die. Because I don't go to bedsides. If you have doctrine, you don't need me. If you don't have doctrine, you don't need me.
+And don't call me to come running to your bedside when you're dying or however you die. Because I don't go to bedsides. 
 
-And I cannot wave a magic wand in five minutes when you have missed every Bible class for five years or whatever it is. You say, isn't that a little hard nose? No, that is the issue.
+If you have doctrine, you don't need me. If you don't have doctrine, you don't need me.
 
-And I am the representative of the Lord Jesus Christ to you. And I have no intention of patting you on the head or holding your hand while you are in misery. A misery you have manufactured by your own negative volition toward doctrine.
+And I cannot wave a magic wand in five minutes when you have missed every Bible class for five years or whatever it is. 
 
-I have provided. The cal perfect of ra-ah. Different. It doesn't mean to provide. R-A-A-H. Ra-ah means to see. I have seen a king.
+You say, isn't that a little hard nose? No, that is the issue.
+
+And I am the representative of the Lord Jesus Christ to you. 
+
+And I have no intention of patting you on the head or holding your hand while you are in misery. A misery you have manufactured by your own negative volition toward doctrine.
+
+"I have provided". The cal perfect of RAAH. Different. It doesn't mean to provide. R-A-A-H. IT means to see. 
+
+> I have seen a king.
 
 Now, what did God see?
 
 God saw the soul of David out with the sheep. What would you see? You would see a flock of sheep out in the hills of southern Israel and Judah. You would see a shepherd.
 
-A very handsome, red-headed shepherd, young man. He's in his late teens now. Later on, he will be 24 when he is introduced to Israel. He's called already a Malik.
+A very handsome, red-headed shepherd, young man. 
 
-And even though he's a long way from the throne, God said it. That's it. I wonder what God said about you 10 years ago. No, I see a billionaire.
+He's in his late teens now. Later on, he will be 24 when he is introduced to Israel. He's called already a MELEKH, a King.
 
-I see a successful person in medicine, in law, in the military. I see the greatest lovers of the century. What did he say about you? Maybe it's not printable.
+And even though he's a long way from the throne, he's at least 30 years from the throne, God said it. That's it. 
 
-I, and get this, it's cal-perfect. The perfect tense is completed action. I have seen a king. Isn't this beautiful?
+I wonder what God said about you 10 years ago? 
+
+I see a billionaire. I see a successful person in medicine, in law, in the military. I see the greatest lovers of the century. What did he say about you? 
+
+Maybe it's not printable.
+
+I, and get this, it's Qal-perfect. The perfect tense is completed action. 
+
+I have seen a king. Isn't this beautiful?
 
 Billions and billions and billions and billions of years ago, God knew every decision David would ever make. God knew that David was one of those kind of people who would gap it daily.
+
+God knew that David would love Bible Doctrine.
 
 I have seen a king. Not I have provided. I have seen a king.
 
@@ -528,23 +562,33 @@ Psalm 78:70. Now get this. This is something we could see. God can see something
 
 He chose David also his servant. David was a super grace believer. He took him from the sheepfolds.
 
-Now, how on earth can anyone ever... You could say to David when he presents himself, he makes application for king. What are your qualifications, shepherd? What experience have you had taking care of sheep?
+Now, how on earth can anyone ever... You could say to David when he presents himself, he makes application for king. 
+
+What are your qualifications? shepherd 
+
+What experience have you had? taking care of sheep
 
 I don't think David would make it today, do you? I don't think David could even get on the ballot.
 
 David wouldn't make it today because people are stupid. That's why. American people are stupid.
 
-David, the divine viewpoint, the divine viewpoint disappears. The ballots of this country have been dignified with some of the most awful reversionists who ever lived.
+David, the divine viewpoint, the divine viewpoint disappears. 
 
-People who are, if they even came close to running anything in this country, would destroy you. Why even allow on a ballot someone who would destroy you? Doesn't make sense.
+The ballots of this country have been dignified with some of the most awful reversionists who ever lived.
+
+People who are, if they even came close to running anything in this country, would destroy you. 
+
+Why even allow on a ballot someone who would destroy you? Doesn't make sense.
 
 Well, what are David's qualifications? Here we have it. He chose David also his servant and took him from the sheepfolds.
 
-What on earth would make a person a good king by handling a flock of woolies? One. Very simple.
+What on earth would make a person a good king by handling a flock of woolies? 
 
-First of all, sheep stink. They are the most malodorous of quadrupeds. In other words, they are four-legged animals that have an awful smell.
+One. Very simple. First of all, sheep stink. They are the most malodorous of quadrupeds. In other words, they are four-legged animals that have an awful smell.
 
-Well, to hang around sheep, you have to smell like them out of self-defense, or you can't stand it. David is going to have a nation of some malodorous people, so I can see his qualifications.
+Well, to hang around sheep, you have to smell like them out of self-defense, or you can't stand it. 
+
+David is going to have a nation of some malodorous people, so I can see his qualifications.
 
 He gets used to running things that smell bad. Why not make him king? The nation smells bad.
 
@@ -570,7 +614,9 @@ But do you realize that all of these things that I'm saying make a good shepherd
 
 There is one thing David had going for him that made him a great king, the greatest king of all time, and that made him the greatest military man of all time. Of all the great captains in history, David is the greatest.
 
-Now, why? Bible doctrine in the soul. That's what made him great.
+Now, why? 
+
+> Bible doctrine in the soul. That's what made him great.
 
 Bible doctrine in the soul. When he was out with the sheep, he was alone. He was away from people.
 
@@ -586,9 +632,15 @@ And a man could be a great shepherd and a lousy king. And a man could be a lousy
 
 So it doesn't jive. It doesn't add up. And therefore, if you have a commentary that tries to explain that, get rid of it.
 
-Because the secret is grace. The secret is super grace. The secret is Bible doctrine in the soul.
+> Because the secret is grace. 
 
-When he says, "I have provided me a king," he says, and adding to that, Psalm 78, 70, he chose David also his servant. His servant means he was faithful in taking in the word and took him from the sheepfolds.
+> The secret is super grace. 
+
+> The secret is Bible doctrine in the soul.
+
+When he says, "I have provided me a king," he says, and adding to that, Psalm 78:70, he chose David also his servant. 
+
+His servant means he was faithful in taking in the word and took him from the sheepfolds.
 
 He could have taken him from anywhere. He could have taken him from any kind of a job.
 
@@ -610,9 +662,11 @@ You may be pushing a broom. You may be carrying a gun and guarding the most inco
 
 You may be doing something and people will say, no wonder he became so great. He guarded abstract art. Not at all, you see.
 
-Now, what is this passage really saying? That David, but God chose him because he was a shepherd? No.
+Now, what is this passage really saying? 
 
-God chose him because he was a super grace believer. That's why.
+That David, but God chose him because he was a shepherd? No.
+
+> God chose him because he was a super grace believer. That's why.
 
 Now, what you are doing, now you get this, Mr. On Your High Horse or Miss High Hat. What you are doing while you get your super grace life doesn't mean a thing.
 
@@ -636,13 +690,17 @@ That's what happened to that pro team up north of us here. They used to call the
 
 No matter how you slice it, David doesn't have a testimony. Thank God he doesn't have a testimony.
 
-Why was David great? David didn't do a thing except take in doctrine and do his job.
+Why was David great? 
 
-Doctrine made him do a lot of things out there we're going to see later on. But doctrine made him go after a lion.
+David didn't do a thing except take in doctrine and do his job.
+
+Doctrine made him do a lot of things out there we're going to see later on. 
+
+Doctrine made him go after a lion.
 
 When most of you say, huh, boy, he only took one sheep. Am I lucky? In fact, you might go into town and have a few just to forget how horrible it was to see that lion coming through.
 
-But not David. Uh-uh. David did a doctrine. He used doctrine all the time.
+But not David. Uh-uh. David used doctrine. He used doctrine all the time.
 
 You can use doctrine on a dishwashing job. You can use doctrine while you're cleaning floor. You can use doctrine, all right.
 
@@ -660,17 +718,19 @@ You say, but isn't being the President of the United States great? No. Not unles
 
 Isn't being the President of a company great? No. Not unless you are great.
 
-Just think. There are people who are Corporation Presidents who have had ten years' experience being a Corporation President, and they're still not great. They're just as dumb as the day they walked in and sat on that desk, behind that desk.
+Just think. There are people who are Corporation Presidents who have had ten years' experience being a Corporation President, and they're still not great. They're just as dumb as the day they walked in and sat behind that desk.
 
 There are generals who are just as stupid today as when they were a yearling at West Point. There are men who have gone into the White House who are just as stupid today as when they overspent their allowance in Harvard.
 
-Now, listen. What is the experience for greatness? There's Bible doctrine in the soul.
+> What is the experience for greatness? Bible doctrine in the soul.
 
 And what does that mean? It means God is going to promote you.
 
 And now you listen to this because you're going to... This is the issue of your life.
 
-If God doesn't promote you, you are not promoted. And if you are not promoted, you are going to go through three stages of misery, and that's the rest of your life. And you will die the sin unto death.
+> If God doesn't promote you, you are not promoted. 
+
+And if you are not promoted, you are going to go through three stages of misery, and that's the rest of your life. And you will die the sin unto death.
 
 Some of you are starting in the military profession. It's an honorable profession.
 
@@ -694,27 +754,25 @@ Some of you are very discouraged because you don't think you're getting along we
 
 Get Bible doctrine and move on! Your life doesn't depend on what idiots think anyway.
 
-Anyway, so someone says, well, you're just a waitress, but I'm a car hop at the hamburger stand. Everyone has a tendency to get a little snooty about something.
+Someone says, well, you're just a waitress, but I'm a car hop at the hamburger stand. Everyone has a tendency to get a little snooty about something.
 
 Snobs come in all sizes, shapes, and descriptions. And don't let snobocracy wipe you out.
 
 Because what your job may be is totally inconsequential. It's the content of doctrine in your soul, and that's the only issue.
 
-Happy Thanksgiving. Every day should be Thanksgiving.
-
 I have seen a king.
 
-Now, not only do we have this in Psalm 78, 70, but look at 2 Samuel 7, 8 on the way back. 2 Samuel 7, 8. 2 Samuel 7, 8. 2 Samuel 7, 8. 2 Samuel 7, 8. Get this now.
+Now, not only do we have this in Psalm 78:70, but look at 2 Samuel 7:8
 
-2 Samuel comes right after 1 Samuel. 2 Samuel 7, 8.
+Now therefore so shalt thou say unto my servant David, Thus saith the Lord of the armies, the Lord of the armies is Jesus Christ, I took thee from the sheepcote, from following the sheep, to be ruler over my people, over Israel
 
-Now, therefore, so shalt thou say to my servant David, thus saith the Lord of the armies. The Lord of the armies is Jesus Christ.
+If the Lord doesn't promote you, you're not promoted. Notice who did the work. God did the work.
 
-I took you from the sheepfolds, or the sheep coat. I took you from following the sheep to be ruler over my people, over Israel.
+All God needed was a man with capacity. 
 
-Well, if the Lord doesn't promote you, you're not promoted. Notice who did the work. God did the work.
+To be a receiver of grace, you have to have capacity. 
 
-All God needed was a man with capacity. To be a receiver of grace, you have to have capacity. Your capacity comes from Bible doctrine in the soul.
+Your capacity comes from Bible doctrine in the soul.
 
 You know what this verse is saying, in effect? David, you took in doctrine like no one else. You concentrated on doctrine like no one else.
 
@@ -722,11 +780,13 @@ You were a person whose soul was saturated with doctrine. You had an edification
 
 All I had to do was take you from the sheepfold, and you didn't go through intermediary steps. You just went all the way to ruler over Israel.
 
-Now, please notice something else. When God promotes you, it's permanent. Not only is God the only one who can promote you, but when He does promote you, it's permanent.
+Now, please notice something else. When God promotes you, it's permanent. 
+
+Not only is God the only one who can promote you, but when He does promote you, it's permanent.
 
 How long was David ruler over Israel?
 
-until the day he died. That's how long. When God gives you something, it's permanent.
+for 40 years and until the day he died. That's how long. When God gives you something, it's permanent.
 
 You go hustling after someone and say, this is my right man, this is my right woman. You don't know from Adam's off ox, much less Adam's rib. So, you may just get too pushy and wind up with a miserable life.
 
@@ -754,7 +814,9 @@ If you get away from doctrine, the only experience you can have is reversionism.
 
 You can witness for Christ, you can pray, you can hustle around a church, you can do all of those things while you're on your way to the sin unto death. What you need is doctrine in the soul.
 
-God sees souls, not overt experience. All right, I have seen a king.
+God sees souls, not overt experience. 
+
+> I have seen a king.
 
 Now let's go back to our passage. Next, we want to notice the failure of Samuel.
 
@@ -764,25 +826,27 @@ The divine viewpoint is that Saul is rejected because of reversionism. The human
 
 Samuel had his eyes on circumstances. In verse 2, he was intimidated by human viewpoint. Notice verse 2 of 1 Samuel 16.
 
-And Samuel said, how can I go? If Saul hear it, he will kill me. The Cal Perfect of Harag. H-A-R-A-G.
+And Samuel said, How can I go? if Saul hear it, he will kill me. The Qal Perfect of Harag. H-A-R-A-G.
 
 Now, Harag means to kill in a violent, cruel, vicious way. It doesn't mean to give you the coup de grace and you just fall into unconsciousness. It means to kill you Apache style, slowly, amidst your screams of agony and pain. That's what Harag means.
 
-But notice that Harag is also in the Cal Perfect. And Samuel, in reversionism, has such a good imagination that in his own mind, he's already dead the minute he takes one step toward Bethlehem.
+But notice that Harag is also in the Qal Perfect. And Samuel, in reversionism, has such a good imagination that in his own mind, he's already dead the minute he takes one step toward Bethlehem.
 
 You see how the soul is always the issue? Even in reversionism. Here is Samuel who was afraid of nothing, and now he's afraid of a king in reversionism. He will kill me in great violence.
 
-And thirdly, the failure of Samuel. He had human viewpoint. He chose the wrong man. Verses 6 and 7.
+### The failure of Samuel. 
+
+He had human viewpoint. He chose the wrong man. Verses 6 and 7.
 
 Skip down now to verses 6 and 7. He finally was persuaded by the Lord to go. So he goes to Bethlehem.
 
-And in verse 6, it came to pass, Cal Imperfect of Ha-Yah, when they were come, he looked on Eliab. See, Jesse had to haul his sons in.
+And in verse 6, it came to pass, Qal Imperfect of Ha-Yah, when they were come, he looked on Eliab. See, Jesse had to haul his sons in.
 
-Now you remember this bird Eliab. Eliab, he kept looking at him. The Cal Imperfect of Ra-Ah.
+Now you remember this bird Eliab. Eliab, he kept looking at him. The Qal Imperfect of Ra-Ah.
 
-Remember the Cal Imperfect of Ra-Ah in verse 1? I have seen a king. Now we have the Cal Imperfect, which means that Samuel kept looking at this bird Eliab.
+Remember the Qal Imperfect of Ra-Ah in verse 1? I have seen a king. Now we have the Qal Imperfect, which means that Samuel kept looking at this bird Eliab.
 
-Kept looking at why? He was very handsome. Striking in his appearance. And he also was wearing the... He had just gotten out of ROTC. He was wearing the uniform of a new second lieutenant in the Jewish army. He made quite an appearance.
+Kept looking at why? He was very handsome. Striking in his appearance. And he also was wearing the... He had just gotten out of military school. He was wearing the uniform of a new second lieutenant in the Jewish army. He made quite an appearance.
 
 as very handsome. Very fine looking. Very nice looking young lad.
 
