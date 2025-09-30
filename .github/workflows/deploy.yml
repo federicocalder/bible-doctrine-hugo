@@ -33,10 +33,12 @@ jobs:
         key: ${{ secrets.SERVER_SSH_KEY }}
         script: |
           cd /var/www/bible-doctrine-hugo
-          git pull origin main
+          git fetch origin main
+          git reset --hard origin/main
           rm -rf public/*
           hugo --minify --baseURL="https://bible-doctrine.com"
           echo "✅ Bible Doctrine site deployed successfully"
+          echo "📝 Current commit: $(git rev-parse HEAD)"
 
     - name: Verify deployment
       run: |
