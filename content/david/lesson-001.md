@@ -1,12 +1,18 @@
 ---
-title: "David Lesson 001"
+title: "I Have Seen A King - David's Anointing and the Failures of Samuel and Saul | 1 Samuel 16:1-12"
+description: "Study of 1 Samuel 16:1-12 examining God's rejection of Saul, Samuel's mourning, and the divine selection of David as king. Explores the importance of Bible doctrine in the soul over outward appearance, the grace potential and failure of King Saul, and how David became God's choice through doctrine rather than human merit."
 date: 2025-09-30
 draft: false
 series: "david"
 lesson: 1
 ---
 
-# David Lesson 001
+# I Have Seen A King - David Lesson 001 
+
+## Failuers of Samuel and Saul
+### 1 Samuel 16:1-12
+## Psalm 78:70
+## 2 Sam 7:8
 
 The Word of God is alive and powerful, sharper than any two-edged sword, piercing even to the dividing asunder of the soul and the spirit of the joints and the marrow, and is a critic of thoughts and intents of the heart. All Scripture is God-breathed and is profitable for doctrine, for reproof, for correction, for instruction in righteousness, that the man of God might be mature, thoroughly furnished unto all good works. Study to show thyself approved unto God, a workman that needeth not to be ashamed, rightly dividing the Word of Truth.
 
