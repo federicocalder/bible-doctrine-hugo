@@ -145,6 +145,20 @@ article p {
   margin-bottom: 15px;
 }
 
+blockquote {
+  background: #2a2a2a;
+  border-left: 4px solid #6b9bd1;
+  padding: 15px 20px;
+  margin: 20px 0;
+  border-radius: 4px;
+  color: #e8e8e8;
+  font-style: italic;
+}
+
+blockquote p {
+  margin: 0;
+}
+
 footer {
   text-align: center;
   margin-top: 40px;

@@ -402,21 +402,25 @@ This is emotional revolt of the soul perpetuated into total reversionism.
 
 What is the divine view of King Saul? 
 
-I have rejected the Qal perfect of MAAS.
+"I have rejected" the Qal perfect of MAAS.
 
 Now, Maas means that while King Saul is going to reign for a long time yet, God has rejected him as the king, but wants to give him in grace every opportunity to recover from reversionism.
 
-Remember that God is fair. And even though this man is now rejected, grace gives him every opportunity to go from negative to positive toward doctrine and to recover.
+Remember that God is fair. 
 
-I have rejected him from reigning over Israel. And this particular phrase literally means from being king over Israel.
+And even though this man is now rejected, grace gives him every opportunity to go from negative to positive toward doctrine and to recover.
 
-Now, in addition to that, God's plan moves on. Here's the principle. Reversionism never hinders the plan of God.
+"I have rejected him from reigning over Israel". And this particular phrase literally means "from being king over Israel".
+
+Now, in addition to that, God's plan moves on. Here's the principle. 
+
+> Reversionism never hinders the plan of God.
 
 If you go into reversionism, God's plan is going on with you or without you. And God's plan is not held up by anyone. Therefore, no one is indispensable in God's plan.
 
 And if you choose reversionism, you lose all chance for happiness in time. And God has something He wants to do on your behalf. God wants to prove to you that He can make you happy in time.
 
-Now, God is going to make you very happy in eternity. You may be the sorriest Christian who ever lived. You may be worse than King Saul as a reversionist. But in eternity, you're going to have perfect happiness like everyone else.
+God is going to make you very happy in eternity. You may be the sorriest Christian who ever lived. You may be worse than King Saul as a reversionist. But in eternity, you're going to have perfect happiness like everyone else.
 
 God only has a short time here on this earth to show you how happy He can make you. And His capacity to give under grace is phenomenal.
 
@@ -428,7 +432,7 @@ God wanted to, in the worst kind of a way, He wanted to bless King Saul. He was 
 
 And God loves Saul in reversionism, just as God loves you in reversionism. Your spiritual status does not affect God's love for you.
 
-God loves you on the basis of His character. God loves you on the basis of who and what He is, not on the basis of who and what you are.
+> God loves you on the basis of His character. God loves you on the basis of who and what He is, not on the basis of who and what you are.
 
 You may love people on a meritorious basis. It's pitiful if you do. But God loves on the basis of His own perfect character.
 
