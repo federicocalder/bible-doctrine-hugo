@@ -9,6 +9,8 @@ lesson: 1
 
 # David Lesson 001 
 
+## Introduction to the life of David
+## Introduction to the Super Grace Life
 ## Failures of Samuel and Saul
 ### 1 Samuel 16:1-12
 ### Psalm 78:70
