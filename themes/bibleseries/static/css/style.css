@@ -159,6 +159,18 @@ blockquote p {
   margin: 0;
 }
 
+/* Hebrew words and theological terms */
+.hebrew {
+  color: #e8a87c;
+  font-weight: 600;
+  font-style: italic;
+}
+
+.theological-term {
+  color: #a8d8ea;
+  font-weight: 600;
+}
+
 footer {
   text-align: center;
   margin-top: 40px;

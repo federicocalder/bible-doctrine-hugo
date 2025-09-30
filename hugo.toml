@@ -6,3 +6,8 @@ theme = "bibleseries"
 [params]
   description = "Transcribed Bible doctrine teachings by R.B. Thieme Jr."
   author = "R.B. Thieme Jr."
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true

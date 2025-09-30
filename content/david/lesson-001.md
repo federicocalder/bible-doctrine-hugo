@@ -42,20 +42,20 @@ Now, since the day that you have believed in Jesus Christ, God had a gracious wa
 
 Then it is cycled up into the heart of the right lobe, into the frame of reference. From the frame of reference, it becomes vocabulary, categories, norms, and standards, and doctrine gets on the launching pad. Now, that's the beginning.
 
-With this Epignosis doctrine, the believer begins to construct a house in the soul, an edification complex. 
+With this <span class="theological-term">Epignosis</span> doctrine, the believer begins to construct a house in the soul, an **edification complex**.
 
-The first floor is constructed of doctrine, and it's called grace orientation. 
+**The Five Floors of the Edification Complex:**
 
-The second floor, mastery of the details of life. 
+1. **First Floor:** Grace orientation
+2. **Second Floor:** Mastery of the details of life
+3. **Third Floor:** Relaxed mental attitude of agape love
+4. **Fourth Floor:** Capacity for love
+   - Category one: toward God
+   - Category two: right-man, right-woman
+   - Category three: friendship
+5. **Fifth Floor:** <span class="theological-term">+H</span> (Happiness)
 
-The third floor, the relaxed mental attitude of agape love.
-
-Fourth floor, capacity for love. 
-Category one, toward God. 
-Category two, right-man - right-woman. 
-Category three, friendship.
-
-The fifth floor is +H (+ Happiness). God wants you to be happy. God wants to share his perfect happiness with you.
+God wants you to be happy. God wants to share his perfect happiness with you.
 
 His perfect happiness is +H. And while you agree with God that you want to be happy, if you go about it your own way, you will never achieve it. But this is God's way.
 
@@ -188,9 +188,9 @@ Now let's take a look at 1 Samuel 16, verse 1.
 One verse, and three men are mentioned in one verse.
 
 
-The Qal imperfect of Amar. 
+The <span class="hebrew">Qal</span> imperfect of <span class="hebrew">Amar</span>.
 
-Amar means that a decree in this case. The Lord decreed to Samuel.
+<span class="hebrew">Amar</span> means that a decree in this case. The Lord decreed to Samuel.
 
 Samuel is the first great prophet in Israel since Moses. 
 
@@ -228,15 +228,15 @@ He had a talent for putting himself over and giving the impression, like so many
 
 He did not have that moral courage that goes with doctrine in the soul. And when the chips were down, he always failed.
 
-But the Lord said unto Samuel, How long wilt thou mourn? 
+But the Lord said unto Samuel, "How long wilt thou mourn?"
 
-This is a hithpa'el from the verb aval. A-V-A-L.
+This is a <span class="hebrew">hithpa'el</span> from the verb <span class="hebrew">aval</span> (A-V-A-L).
 
-Now, aval in the hithpa'el stem is reflexive. 
+Now, <span class="hebrew">aval</span> in the <span class="hebrew">hithpa'el</span> stem is reflexive.
 
-Hithpa'el means, How long are you going to feel sorry for yourself?
+<span class="hebrew">Hithpa'el</span> means, "How long are you going to feel sorry for yourself?"
 
-The principle is of aval in the hithpa'el, that first of all, Samuel began by being concerned for his nation, for he was truly patriotic. 
+The principle is of <span class="hebrew">aval</span> in the <span class="hebrew">hithpa'el</span>, that first of all, Samuel began by being concerned for his nation, for he was truly patriotic. 
 
 He had enough Bible doctrine. He had enough understanding of the laws of establishment to realize that his nation was in great jeopardy. 
 
@@ -284,15 +284,13 @@ This is something that King Saul never learned.
 
 All right, let's look then, 1) at the Grace potential of Saul, and 2) the failure of Saul. 
 
-### The grace potential of Saul.
+### The grace potential of Saul
 
-1) He was separated from the rest of Israel by divine appointment. 1 Samuel 10.1 describes how Saul was anointed king over Israel. He was anointed by divine appointment.
+1. **He was separated from the rest of Israel by divine appointment.** 1 Samuel 10:1 describes how Saul was anointed king over Israel. He was anointed by divine appointment. The people wanted a ruler so they could be like other nations. They were wrong, but God still permitted him to be appointed. This was his grace potential.
 
-The people wanted a ruler so they could be like other nations. They were wrong, but God still permitted him to be appointed. This was his grace potential.
+2. **He was encouraged by divine promises.** 1 Samuel 10:6-7
 
-2) he was encouraged by divine promises. 1 Samuel 10: 6 and 7.
-
-3) He was changed by grace. When he first became king, he responded to doctrine. 1 Samuel 10:9, he responded to the point where he has to be classified as a reversionist.
+3. **He was changed by grace.** When he first became king, he responded to doctrine. 1 Samuel 10:9, he responded to the point where he has to be classified as a reversionist.
 
 A reversionist is an apostate who once liked Bible doctrine. Like many of you, you used to go for Bible doctrine. You used to come to Bible class every night. Now you're nothing but reversionists, and all reversionists have the same problem. Divine discipline.
 
@@ -308,11 +306,11 @@ Here again, you have true friends, and instead you're over here fooling around w
 
 The problem is that grace can change you, but when you reject the source of grace, which is Bible doctrine, you've had it. So, we have the fact that in the grace potential of King Saul, he was changed by grace, 1 Samuel 10:9.
 
-4) he was assured by his circumstances, also 1 Samuel 10.9. His circumstances gave great encouragement.
+4. **He was assured by his circumstances.** Also 1 Samuel 10:9. His circumstances gave great encouragement.
 
-5) He was blessed in an unusual way by God in a time when the Holy Spirit was limited to a few people. He was moved by the Holy Spirit, 1 Samuel 10:10.
+5. **He was blessed in an unusual way by God** in a time when the Holy Spirit was limited to a few people. He was moved by the Holy Spirit, 1 Samuel 10:10.
 
-6) He was humbled by his prospects, 1 Samuel 10: 21 and 22. All of this makes up the grace potential.
+6. **He was humbled by his prospects.** 1 Samuel 10:21-22. All of this makes up the grace potential.
 
 Saul was a believer in the Lord Jesus Christ, and he had the opportunity of being one of the great kings of all time, of having a very happy and prosperous reign. 
 
@@ -366,19 +364,15 @@ Secondly, let's take a quick look at his failure.
 
 ### The failure of Saul
 
-1) He died the sin unto death. 1 Chronicles 10, 13, and 14. 
+1. **He died the sin unto death.** 1 Chronicles 10:13-14. The sin unto death is the exception to dying grace. It means to go out horribly and miserably.
 
-And the sin unto death is the exception to dying grace. It means to go out horribly and miserably.
+2. **He began reversionism by ignoring the Word of God.** 1 Samuel 13:9-14. In that particular passage, he was told to kill the enemy. And there was one enemy, the king, who had a great personality, and he didn't want to kill him. And because he refused to kill the enemy, there he was obviously rejecting the Word of God and obviously got into reversionism.
 
-2) He began reversionism by ignoring the Word of God. 1 Samuel 13:9-14. 
+3. **King Saul ignored the will of God.** 1 Samuel 15:3, 9
 
-And in that particular passage, he was told to kill the enemy. And there was one enemy, the king, who had a great personality, and he didn't want to kill him. And because he refused to kill the enemy, there he was obviously rejecting the Word of God and obviously got into reversionism.
+4. **Saul's reversionism is summarized** in 1 Samuel 15:22-23
 
-3) therefore, King Saul ignored the will of God. 1 Samuel 15: 3 and 9.
-
-4) Saul's reversionism is summarized in 1 Samuel 15: 22 and 23.
-
-Therefore, 5) Saul is rejected by the Lord. 1 Samuel 15:35.
+5. **Saul is rejected by the Lord.** 1 Samuel 15:35
 
 Now, when I give you these categorical developments, looking up the verses later and studying them is the basis of blessing. All I can do is analyze and give you something to do.
 
@@ -402,9 +396,9 @@ This is emotional revolt of the soul perpetuated into total reversionism.
 
 What is the divine view of King Saul? 
 
-"I have rejected" the Qal perfect of MAAS.
+"I have rejected" the <span class="hebrew">Qal</span> perfect of <span class="hebrew">MAAS</span>.
 
-Now, Maas means that while King Saul is going to reign for a long time yet, God has rejected him as the king, but wants to give him in grace every opportunity to recover from reversionism.
+Now, <span class="hebrew">Maas</span> means that while King Saul is going to reign for a long time yet, God has rejected him as the king, but wants to give him in grace every opportunity to recover from reversionism.
 
 Remember that God is fair. 
 
@@ -526,7 +520,7 @@ And I am the representative of the Lord Jesus Christ to you.
 
 And I have no intention of patting you on the head or holding your hand while you are in misery. A misery you have manufactured by your own negative volition toward doctrine.
 
-"I have provided". The cal perfect of RAAH. Different. It doesn't mean to provide. R-A-A-H. IT means to see. 
+"I have provided". The <span class="hebrew">Qal</span> perfect of <span class="hebrew">RAAH</span>. Different. It doesn't mean to provide. <span class="hebrew">R-A-A-H</span>. IT means to see.
 
 > I have seen a king.
 
@@ -536,7 +530,7 @@ God saw the soul of David out with the sheep. What would you see? You would see 
 
 A very handsome, red-headed shepherd, young man. 
 
-He's in his late teens now. Later on, he will be 24 when he is introduced to Israel. He's called already a MELEKH, a King.
+He's in his late teens now. Later on, he will be 24 when he is introduced to Israel. He's called already a <span class="hebrew">MELEKH</span>, a King.
 
 And even though he's a long way from the throne, he's at least 30 years from the throne, God said it. That's it. 
 
@@ -826,11 +820,11 @@ The divine viewpoint is that Saul is rejected because of reversionism. The human
 
 Samuel had his eyes on circumstances. In verse 2, he was intimidated by human viewpoint. Notice verse 2 of 1 Samuel 16.
 
-And Samuel said, How can I go? if Saul hear it, he will kill me. The Qal Perfect of Harag. H-A-R-A-G.
+And Samuel said, "How can I go? if Saul hear it, he will kill me." The <span class="hebrew">Qal</span> Perfect of <span class="hebrew">Harag</span> (H-A-R-A-G).
 
-Now, Harag means to kill in a violent, cruel, vicious way. It doesn't mean to give you the coup de grace and you just fall into unconsciousness. It means to kill you Apache style, slowly, amidst your screams of agony and pain. That's what Harag means.
+Now, <span class="hebrew">Harag</span> means to kill in a violent, cruel, vicious way. It doesn't mean to give you the coup de grace and you just fall into unconsciousness. It means to kill you Apache style, slowly, amidst your screams of agony and pain. That's what <span class="hebrew">Harag</span> means.
 
-But notice that Harag is also in the Qal Perfect. And Samuel, in reversionism, has such a good imagination that in his own mind, he's already dead the minute he takes one step toward Bethlehem.
+But notice that <span class="hebrew">Harag</span> is also in the <span class="hebrew">Qal</span> Perfect. And Samuel, in reversionism, has such a good imagination that in his own mind, he's already dead the minute he takes one step toward Bethlehem.
 
 You see how the soul is always the issue? Even in reversionism. Here is Samuel who was afraid of nothing, and now he's afraid of a king in reversionism. He will kill me in great violence.
 
@@ -844,11 +838,11 @@ Skip down now to verses 6 and 7. He finally was persuaded by the Lord to go. So 
 And it came to pass, when they were come, that he looked on Eliab, and said, Surely the Lord's anointed is before him. 
 But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.
 
-And in verse 6, it came to pass, Qal Imperfect of Ha-Yah, when they were come, he looked on Eliab. See, Jesse had to haul his sons in.
+And in verse 6, it came to pass, <span class="hebrew">Qal</span> Imperfect of <span class="hebrew">Ha-Yah</span>, when they were come, he looked on Eliab. See, Jesse had to haul his sons in.
 
-Now you remember this bird Eliab. Eliab, he kept looking at him. The Qal Imperfect of Ra-Ah.
+Now you remember this bird Eliab. Eliab, he kept looking at him. The <span class="hebrew">Qal</span> Imperfect of <span class="hebrew">Ra-Ah</span>.
 
-Remember the Qal Imperfect of Ra-Ah in verse 1? I have seen a king. Now we have the Qal Imperfect, which means that Samuel kept looking at this bird Eliab.
+Remember the <span class="hebrew">Qal</span> Imperfect of <span class="hebrew">Ra-Ah</span> in verse 1? "I have seen a king." Now we have the <span class="hebrew">Qal</span> Imperfect, which means that Samuel kept looking at this bird Eliab.
 
 Kept looking at why? He was very handsome. Striking in his appearance. And he also was wearing the... He had just gotten out of military school. He was wearing the uniform of a new second lieutenant in the Jewish army. He made quite an appearance.
 
@@ -878,9 +872,9 @@ Here is a child who is full of mental attitude sins and who also has a sharp, vi
 
 The difference is in the soul. For this is what we have in verse 7.
 
-But the Lord said to Samuel, he decreed to Samuel, Qal imperfect of Amar, A-M-A-R. The Lord decreed to Samuel, Look not the hyphial imperfect from Nabat. N-A-B-A-T.
+But the Lord said to Samuel, he decreed to Samuel, <span class="hebrew">Qal</span> imperfect of <span class="hebrew">Amar</span> (A-M-A-R). The Lord decreed to Samuel, "Look not" the <span class="hebrew">hiphil</span> imperfect from <span class="hebrew">Nabat</span> (N-A-B-A-T).
 
-Now, the hyphial stem is causative, active voice. And Nabat in the hyphial really means, Do not regard with respect. Also has the negative with it.
+Now, the <span class="hebrew">hiphil</span> stem is causative, active voice. And <span class="hebrew">Nabat</span> in the <span class="hebrew">hiphil</span> really means, "Do not regard with respect." Also has the negative with it.
 
 Do not be caused to regard him with respect. You're looking at him from the overt standpoint, 
 
@@ -908,7 +902,7 @@ The mouth is the window to the soul. And what a person's really like? Well, all 
 
 Now, here is a man who makes a fantastic appearance. But the Lord said to Samuel, Do not have respect for his face. Or on the height of his stature. He's tall.
 
-Because I have refused him. The Qal perfect of MAAS again. M-A-A-S and this is perfect tense, which means it is permanent. "I have refused him". Third masculine singular suffix refers to Eliab.
+Because I have refused him. The <span class="hebrew">Qal</span> perfect of <span class="hebrew">MAAS</span> again (M-A-A-S) and this is perfect tense, which means it is permanent. "I have refused him". Third masculine singular suffix refers to Eliab.
 
 And you will see later on why he was rejected. And he is rejected. He has... And how is he rejected? On the basis of his soul. Not on the basis of his appearance. Not on the basis of his muscles.
 
@@ -924,42 +918,17 @@ The heart includes: the memory center and the frame of reference. The vocabulary
 
 Bible doctrine in the right lobe. The Lord looks on, or literally, the Lord sees, Qal imperfect, keeps seeing the right lobe.
 
-## Summary 
+## Summary
 
-1) Doctrine in the right lobe is the issue of happiness and grace blessing. 
+1. **Doctrine in the right lobe is the issue of happiness and grace blessing.** Not experience, not appearance, not some cleverness whereby you can con people into thinking you are something.
 
-Not experience, not appearance, not some cleverness whereby you can con people into thinking you are something.
+2. **Doctrine in the soul is the basis of divine promotion and protection from divine discipline.**
 
-2) Doctrine in the soul is the basis of divine promotion and protection from divine discipline.
+3. **David was God's man.** This anticipates the rest of the chapter. Not because of his experience as a shepherd, but because of Bible doctrine in his soul. That's why Psalm 23 is so important. Psalm 23 reflects doctrine in his soul. Now, there were hundreds and even thousands of shepherds in Israel. How many of them could write Psalm 23? One person, David, is the only one who could write the 23rd Psalm because he's the only one who had the doctrine to do it. Any idiot can quote Psalm 23, but to have the doctrine to write Psalm 23, there was one person. David was God's man. And no matter, even when David fails, David's failures will not keep him from promotion. And listen, do you know that Saul didn't do half of the bad things that David did as a king? And yet Saul wound up under the sin unto death, and David wound up being the greatest king of all time. What does that tell you? Live it up? No, that's what some of the stupid will get out of it. It tells you this, that doctrine in the soul is more important than anything else in life. It's doctrine in the soul that counts. It's feeding on the Word.
 
-3) David was God's man.
+4. **Among the sheep, David learned doctrine and had doctrine tested.** But being a shepherd didn't make him great.
 
-This anticipates the rest of the chapter. 
-Not because of his experience as a shepherd, but because of Bible doctrine in his soul. 
-
-That's why Psalm 23 is so important. 
-
-Psalm 23 reflects doctrine in his soul.
-
-Now, there were hundreds and even thousands of shepherds in Israel. How many of them could write Psalm 23? One person, David, is the only one who could write the 23rd Psalm because he's the only one who had the doctrine to do it.
-
-Any idiot can quote Psalm 23, but to have the doctrine to write Psalm 23, there was one person. David was God's man.
-
-And no matter, even when David fails, David's failures will not keep him from promotion. And listen, do you know that Saul didn't do half of the bad things that David did as a king?
-
-And yet Saul wound up under the sin unto death, and David wound up being the greatest king of all time. What does that tell you? Live it up?
-
-No, that's what some of the stupid will get out of it. It tells you this, that doctrine in the soul is more important than anything else in life.
-
-It's doctrine in the soul that counts. It's feeding on the Word.
-
-4) Among the sheep, David learned doctrine and had doctrine tested. 
-
-But being a shepherd didn't make him great.
-
-5) David was a grace product all the way. 
-
-Therefore, no matter how great David became, only God could take the credit.
+5. **David was a grace product all the way.** Therefore, no matter how great David became, only God could take the credit.
 
 No matter how great David became as a warrior, as a battalion commander. In chapter 18, David's a battalion commander. By the time you get to the end of the book, David is a general. By the time you get into the next book, David is a king.
 
@@ -977,17 +946,9 @@ He was the greatest civilian of his day, he was the greatest soldier of his day.
 
 He's a grace product all the way. Therefore, only God could take the credit. I refer you again to Psalm 78:70, 2 Samuel 7:8, and also 1 Chronicles 17:7.
 
-6) Furthermore, David passed the test of super grace without human admiration or approbation. 1 Samuel 17:34-36.
+6. **David passed the test of super grace without human admiration or approbation.** 1 Samuel 17:34-36. When a lion came and took a lamb, there wasn't anyone standing around cheering David, go out and fight the lion. Go, David, go. Go, David, go. Go, David, go. There wasn't any of that kind of stuff. And after he had killed a lion without a 375 H&H magnum, he still didn't haul this thing in to the nearest bar, throw them down in the middle of the bar, and say, Hey, the drinks are on me. I just killed a lion. Pitiful, isn't it? The way people always try to cash in on their little successes along the way. You know that David didn't even call a press conference? He never called a press conference? No wonder he was great.
 
-When a lion came and took a lamb, there wasn't anyone standing around cheering David, go out and fight the lion. Go, David, go. Go, David, go. Go, David, go. There wasn't any of that kind of stuff.
-
-And after he had killed a lion without a 375 H&H magnum, he still didn't haul this thing in to the nearest bar, throw them down in the middle of the bar, and say, Hey, the drinks are on me. I just killed a lion.
-
-Pitiful, isn't it? The way people always try to cash in on their little successes along the way. You know that David didn't even call a press conference?
-
-He never called a press conference? No wonder he was great.
-
-7) When David passed the lion and the bear test through super grace living, he was ready for anything in life, and the giant was as good as dead.
+7. **When David passed the lion and the bear test through super grace living, he was ready for anything in life, and the giant was as good as dead.**
 
 Meet the super grace hero. And at the time this was said in verse 11, that's what he was. Verse 11.
 
