@@ -10,21 +10,21 @@ lesson: 1
 
 The Word of God is alive and powerful, sharper than any two-edged sword, piercing even to the dividing asunder of the soul and the spirit of the joints and the marrow, and is a critic of thoughts and intents of the heart. All Scripture is God-breathed and is profitable for doctrine, for reproof, for correction, for instruction in righteousness, that the man of God might be mature, thoroughly furnished unto all good works. Study to show thyself approved unto God, a workman that needeth not to be ashamed, rightly dividing the Word of Truth.
 
-Open the Word of Truth this morning to 1 Samuel 16, verse 1. Last year we had the Dunghill special, now we're moving on to something else for this conference.
-
-I have discovered by means of the telephone this morning that a lot of people have not been here lately and have not read the bulletin. This morning is the beginning of a Bible conference, which will be continued tonight for two sessions, 7.45 is one beginning, two sessions tomorrow night, one on Saturday night, and then Sunday, two sessions again. There will be, starting this evening, a special class for the kindergarten through the sixth grade over at the other building, and we'll expect all of the young people of that age to be over there. Everything starts tonight at 7.45.
+Open the Word of Truth this morning to 1 Samuel 16, verse 1. 
 
 In preparation for our study of the Word of God this morning, the next few moments are devoted to silent prayer. The objective is to give you the privacy of your priesthood in order that you might use the rebound technique if necessary. The ministry of God the Holy Spirit is vital for the intake of the Word of God.
 
-A rebound, mechanically, is described in 1 John 1.9. You simply name your sins, and you're forgiven and cleansed from all unrighteousness. You don't have to feel sorry for them. How you feel about them is totally inconsequential.
+Rebound, mechanically, is described in 1 John 1.9. You simply name your sins, and you're forgiven and cleansed from all unrighteousness. You don't have to feel sorry for them. How you feel about them is totally inconsequential.
 
 But under the principle of the grace of God, you simply name them, and you're forgiven on the basis of the fact that Christ was judged for those sins on the cross. Therefore, in order that we might be prepared for our study of the Word of God this morning, the next few moments are devoted to silent prayer.
 
-Let us pray. Let us pray.
+Let us pray. (allow a moment for confession)
 
 We thank you, Father, that we have come to the place where we can regard every day alike, where we recognize that every day is a grace gift from thee. We neither earn nor deserve the fact that we are still on this earth for a purpose. And therefore, we thank thee this morning that we have the privilege of feeding upon the Word and taking in this manna from heaven. Now, may God the Holy Spirit enlighten us as we examine these things this morning. For we ask it in Christ's name, amen.
 
-We have been studying lately in various passages of Scripture the principle of the super-grace life. And we have seen in the fifth chapter of James, for example, that God has the capacity to give. Not only does he have the capacity to give, but the assets to give.
+We have been studying lately in various passages of Scripture the principle of the super-grace life. 
+
+And we have seen in the fifth chapter of James, for example, that God has the capacity to give. Not only does he have the capacity to give, but the assets to give.
 
 His character is perfect, and therefore, under perfect character and unlimited assets, God is qualified to give as no one has ever been qualified. But God has a great problem in giving as far as the human race is concerned.
 
@@ -32,61 +32,114 @@ The problem has to do with the fact that those who are members of the family of 
 
 You may have noticed that since you believed in Jesus Christ, you've had everything but happiness. Well, if that's true, and this particular series is for you, we have seen in the fifth chapter of James, where we have a discussion of monetary reversionism, that God is looking for a man with whom he can entrust a million dollars, a billion dollars.
 
-God has no limit on what he can give. However, most believers will never have the capacity for this kind of success in the field of monetary and business activity. The way in which God would provide this is through capacity, and the only way to get capacity is through the super-grace life.
+> God has no limit on what he can give.
 
-The limitation is not with God. The limitation is with man's capacity.
+However, most believers will never have the capacity for this kind of success in the field of monetary and business activity. The way in which God would provide this is through capacity, and the only way to get capacity is through the super-grace life.
 
-Now, since the day that you have believed in Jesus Christ, God had a gracious way of providing capacity for you. This grace way has to do with taking doctrine into the left lobe. Doctrine goes into the left lobe, and through gap is cycled into the human spirit as epinosis.
+> The limitation is not with God. The limitation is with man's capacity.
+
+Now, since the day that you have believed in Jesus Christ, God had a gracious way of providing capacity for you. This grace way has to do with taking doctrine into the left lobe. Doctrine goes into the left lobe, and through GAP (Grace Aparatus for Perception) is cycled into the human spirit as epinosis.
 
 Then it is cycled up into the heart of the right lobe, into the frame of reference. From the frame of reference, it becomes vocabulary, categories, norms, and standards, and doctrine gets on the launching pad. Now, that's the beginning.
 
-Inosism doctrine, the believer begins to construct a house in the soul, an edification complex. The first floor is constructed of doctrine, and it's called grace orientation. The second floor, mastery of the details of life. The third floor, the relaxed mental attitude of agape love.
+With this Epignosis doctrine, the believer begins to construct a house in the soul, an edification complex. 
 
-Fourth floor, capacity for love. Category one, toward God. Category two, right man, right woman. Category three, friendship.
+The first floor is constructed of doctrine, and it's called grace orientation. 
 
-The fifth floor is plus H. God wants you to be happy. God wants to share his perfect happiness with you.
+The second floor, mastery of the details of life. 
 
-His perfect happiness is plus H. And while you agree with God that you want to be happy, if you go about it your own way, you will never achieve it. But this is God's way.
+The third floor, the relaxed mental attitude of agape love.
 
-And from this plus H, the believer moves into super grace. Super grace has capacity for freedom, capacity for life, capacity for love, capacity for prosperity, capacity for adversity, many other wonderful things. It is the super grace life where God can express to the maximum his own capacity to give.
+Fourth floor, capacity for love. 
+Category one, toward God. 
+Category two, right-man - right-woman. 
+Category three, friendship.
 
-For example, there was a man, 1,900 years ago, who reached the super grace life, and in that area he had capacity for doctrine. So God entrusted more doctrine with that man than anyone in human history. That was the Apostle Paul. He gave him things in the field of doctrine that he was never able to entrust to anyone else.
+The fifth floor is +H (+ Happiness). God wants you to be happy. God wants to share his perfect happiness with you.
 
-The same thing is true in other areas. However, as far as the record goes, and as far as history goes, probably this church age will not end until God finds at least one man in business, one man who has the capacity to receive from God a maximum amount of money, billions of dollars if necessary, and have happiness.
+His perfect happiness is +H. And while you agree with God that you want to be happy, if you go about it your own way, you will never achieve it. But this is God's way.
 
-There are other areas where this has been fulfilled. There is one area where we go back to the Old Testament in order to see what super grace capacity can do.
+And from this +H, the believer moves into super grace. 
 
-David was a super grace believer. As a super grace believer, and having achieved that very early in life, God was able to give him two things that he has never given to anyone else in all of human history. Not that these things are not available, but because of lack of taking in doctrine and lack of capacity on the part of individuals, no one has ever achieved it.
+Super grace has capacity for freedom, capacity for life, capacity for love, capacity for prosperity, capacity for adversity, many other wonderful things. 
 
-David, because of his phenomenal intake of doctrine, succeeded in two great professions. David is one of the greatest military leaders who ever lived. He was one of the most successful junior officers. He was one of the most successful battalion commanders.
+> It is the super grace life where God can express to the maximum his own capacity to give.
 
-He was one of the most successful commanders who ever lived. And David's military record is without parallel when it comes to being successful in every stage of a commissioned officer's life.
+For example, there was a man, 1,900 years ago, who reached the super grace life, and in that area he had capacity for doctrine. 
+
+So God entrusted more doctrine with that man than anyone in human history. 
+
+That was the Apostle Paul. He gave him things in the field of doctrine that he was never able to entrust to anyone else.
+
+The same thing is true in other areas. 
+
+However, as far as the record goes, and as far as history goes, probably this church age will not end until God finds at least one man in business, one man who has the capacity to receive from God a maximum amount of money, billions of dollars if necessary, and have happiness.
+
+There are other areas where this has been fulfilled. 
+
+There is one area where we go back to the Old Testament in order to see what super grace capacity can do.
+
+David was a super grace believer. 
+
+As a super grace believer, and having achieved that very early in life, God was able to give him two things that he has never given to anyone else in all of human history. 
+
+Not that these things are not available, but because of lack of taking in doctrine and lack of capacity on the part of individuals, no one has ever achieved it.
+
+David, because of his phenomenal intake of doctrine, succeeded in two great professions. 
+
+David is one of the greatest military leaders who ever lived. 
+
+He was one of the most successful junior officers. He was one of the most successful battalion commanders.
+
+He was one of the most successful commanders who ever lived. 
+
+And David's military record is without parallel when it comes to being successful in every stage of a commissioned officer's life.
 
 He had the capacity for this, and his capacity was so phenomenal that David's conquests of at least five or six other nations led to the greatest expansion that the Jews have ever known in all of their history.
 
-In addition to that, David became the king of Israel. And as king, he is still on record throughout both Kings and Chronicles as the greatest king who ever lived. No one ever surpassed David in capacity for rule, capacity for success.
+In addition to that, David became the king of Israel. 
 
-So here is a man who illustrates the principle of capacity for success in two separate professions in one lifetime. No one has ever surpassed David in this combination. He stands alone.
+And as king, he is still on record throughout both Kings and Chronicles as the greatest king who ever lived. 
+
+> No one ever surpassed David in capacity for rule, capacity for success.
+
+So here is a man who illustrates the principle of capacity for success in two separate professions in one lifetime. 
+
+No one has ever surpassed David in this combination. He stands alone.
 
 He stands alone in the sense that Jeremiah stands alone. Moses stands alone. The apostle Paul stands alone.
 
-But the tragic thing is that in this 20th century and in our generation, there is no excuse for a large number of believers finding this capacity. Believers in all walks of life. Women with capacity to love, as it has never been known.
+But the tragic thing is that in this 20th century and in our generation, there is no excuse for a large number of believers finding this capacity. 
 
-The Christian women of this generation ought to be the greatest lovers and therefore have the greatest happiness in human history. Men ought to have capacity for leadership. Capacity for success in their chosen profession. Capacity for military victory. Capacity for wealth. Capacity for happiness.
+Believers in all walks of life. Women with capacity to love, as it has never been known.
+
+The Christian women of this generation ought to be the greatest lovers and therefore have the greatest happiness in human history. 
+
+Men ought to have capacity for leadership. Capacity for success in their chosen profession. Capacity for military victory. Capacity for wealth. Capacity for happiness.
 
 And it is this very thing that we lack today. And one of the very most obvious reasons we lack it is because some of you are here today because it's a sort of a holiday and you've hooked it up somehow with God.
 
-Now, when people think of Thanksgiving and Christmas and Easter as a time to come to church, then obviously they have no capacity for life whatever. Being born again does not guarantee you anything except eternal life and perfect happiness in phase three. But you're living in phase two.
+Now, when people think of Christmas and Easter as a time to come to church, then obviously they have no capacity for life whatever. Being born again does not guarantee you anything except eternal life and perfect happiness in phase three. But you're living in phase two.
 
-And all of God's objectives for your life, for your happiness, for your blessing, for your success, are related to Bible doctrine. And that's why we are not having a special thanksgiving service.
+And all of God's objectives for your life, for your happiness, for your blessing, for your success, are related to Bible doctrine. And that's why we are not having a special Christmas service.
 
 We have special religious holidays. We are at the point right now where we regard every day alike, where every day is given to us by God, and every day is a point to be redeemed and a day to be happy and a day for blessing.
 
-And therefore, that nonsense we used to have when we were still in certain growing pain stages, such as having a bunch of people give testimonies about how thankful they are, that's all over. Why? Because if you're any kind of a believer at all, you're thankful every day and you don't have to stand up in front of a bunch of people and tell everyone how you feel.
+And therefore, that nonsense we used to have when we were still in certain growing pain stages, such as having a bunch of people give testimonies about how thankful they are, that's all over. 
 
-And this is the way we keep all of the emotional cripples from giving some kind of a testimony so they won't have a guilt complex when they stuff themselves with turkey. I remember how people used to go out of here weeping how good it was to have been here, how inspiring testimonies were, and all the rest of that nonsense.
+Why? 
 
-Well, once you get into super grace, you get past all that stuff. And if you're not in super grace and you go out of here sort of an emotional hangover or hung up emotionally, then you're in trouble. And you better come back tonight and the next night and the next night until you find out at least what the challenge is.
+Because if you're any kind of a believer at all, you're thankful every day and you don't have to stand up in front of a bunch of people and tell everyone how you feel.
+
+And this is the way we keep all of the emotional cripples from giving some kind of a testimony so they won't have a guilt complex when they stuff themselves with turkey. 
+
+I remember how people used to go out of here weeping how good it was to have been here, how inspiring testimonies were, and all the rest of that nonsense.
+
+Well, once you get into super grace, you get past all that stuff. 
+
+And if you're not in super grace and you go out of here sort of an emotional hangover or hung up emotionally, then you're in trouble. 
+
+And you better come back tonight and the next night and the next night until you find out at least what the challenge is.
 
 Now, this morning we began a study of a young man who decided to skip all of the fundsville of his day. He wasn't stealing money out of the teacher's drawer. He wasn't even chasing the little girls across the school ground.
 
@@ -104,7 +157,15 @@ The thing that made David great was the fact that out there with those sheep, he
 
 However, we're not going to start with David and a few stinking sheep. I hope none of you have lamb today.
 
-This passage is, first of all, the story of three men. Samuel, a morning prophet, and I don't mean early in the morning. I mean crybaby, a prophet mourning for someone. Saul, a reversionistic king. And David, a super gray shepherd. Three people are found in this passage.
+This passage is, first of all, the story of three men:
+
+Samuel, a mourning prophet, and I don't mean early in the morning. I mean crybaby, a prophet mourning for someone. 
+
+Saul, a reversionistic king. 
+
+And David, a super grace shepherd. 
+
+Three people are found in this passage.
 
 This passage also finds the nation Israel, where the United States of America is today, reversionistic and defeated. A reversionistic nation can only go in one of two ways. It can go out under the fifth cycle of discipline, into slavery. Or it can recover from its reversionism and go on to greater things.
 
@@ -120,11 +181,20 @@ And whichever way it goes, it depends upon you as a believer in the Lord Jesus C
 
 Whether you become supergrace or not depends upon your attitude toward doctrine. No believer will ever be happy in phase two if he stays in reversionism.
 
-Now let's take a look at 1 Samuel 16, verse 1. And the Lord said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? Fill thine horn with oil and gold. I will send thee to Jesse the Bethlehemite, for I have provided me a king among his sons. One verse, and three men are mentioned in one verse.
+Now let's take a look at 1 Samuel 16, verse 1. 
 
-The Calimperfect of Amer. Amer means that a decree in this case. The Lord decreed to Samuel.
+> "And the Lord said unto Samuel, How long wilt thou mourn for Saul, seeing I have rejected him from reigning over Israel? fill thine horn with oil, and go, I will send thee to Jesse the Bethlehemite: for I have provided me a king among his sons."
 
-Samuel is the first great prophet in Israel since Moses. From Moses to Samuel, the problems which accumulated to this nation were fantastic.
+One verse, and three men are mentioned in one verse.
+
+
+The Qal imperfect of Amar. 
+
+Amar means that a decree in this case. The Lord decreed to Samuel.
+
+Samuel is the first great prophet in Israel since Moses. 
+
+From Moses to Samuel, the problems which accumulated to this nation were fantastic.
 
 And now we have a possibility of some positive volition again in Israel. And therefore, God provides a communicator.
 
