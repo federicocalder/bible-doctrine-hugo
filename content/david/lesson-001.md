@@ -400,7 +400,9 @@ This is like a gangster feeling sorry for a gangster. This is like a rapist feel
 
 This is emotional revolt of the soul perpetuated into total reversionism.
 
-Now, what is the divine view of King Saul? I have rejected the cal perfect of Maas.
+What is the divine view of King Saul? 
+
+I have rejected the Qal perfect of MAAS.
 
 Now, Maas means that while King Saul is going to reign for a long time yet, God has rejected him as the king, but wants to give him in grace every opportunity to recover from reversionism.
 
