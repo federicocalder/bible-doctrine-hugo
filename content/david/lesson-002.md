@@ -1,6 +1,6 @@
 ---
-title: "David Lesson 002"
-description: "Continuation of the study of David's life, examining 1 Samuel 16:13 and the ministry of the Holy Spirit in the Old Testament versus the Church Age."
+title: "Doctrine of the Indwelling of the Holy Spirit - 002"
+description: "David, The Super Grace Hero, if God doesn't Promote you, you're not promoted."
 date: 2025-10-01
 draft: false
 series: "david"
