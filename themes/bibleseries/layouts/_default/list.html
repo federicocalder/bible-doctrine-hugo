@@ -5,16 +5,14 @@
     <p class="series-description">{{ .Params.description }}</p>
     {{ end }}
 
-    <div class="post-list">
-        {{ range .Pages }}
-        <div class="post-item">
-            <h4><a href="{{ .Permalink }}">{{ .Title }}</a></h4>
-            {{ if .Params.description }}
-            <p class="series-description">{{ .Params.description }}</p>
-            {{ end }}
-            <p class="post-date">{{ .Date.Format "January 2, 2006" }}</p>
-        </div>
+    {{ range .Pages.Reverse }}
+    <div class="lesson-card">
+        <h4><a href="{{ .Permalink }}">{{ .Title }}</a></h4>
+        {{ if .Params.description }}
+        <p class="series-description">{{ .Params.description }}</p>
         {{ end }}
+        <p class="post-date">{{ .Date.Format "January 2, 2006" }}</p>
     </div>
+    {{ end }}
 </div>
 {{ end }}
