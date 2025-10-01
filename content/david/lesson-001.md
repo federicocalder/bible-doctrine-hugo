@@ -1,6 +1,6 @@
 ---
-title: "I Have Seen A King"
-description: "Study of David's life examining God's rejection of Saul, Samuel's mourning, and the divine selection of David as king."
+title: "I Have Seen A King - 001"
+description: "David: the shepherd who became a super-grace believer, proving that doctrine in the soul is greater than any crown."
 date: 2025-09-30
 draft: false
 series: "david"
