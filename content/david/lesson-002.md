@@ -15,16 +15,6 @@ All scripture is God-breathed and is profitable for doctrine, for reproof, for c
 
 Study to show thyself approved unto God a workman that needeth not to be ashamed, rightly dividing the Word of Truth.
 
-Open the Word of Truth this evening to 1 Samuel, chapter 16, 1 Samuel, chapter 16.
-
-Secondly, people who allegedly come to Baraka Church wanted to know if there was anything going on tonight, and I told them, no, nothing new, and I do want to tell you something else.
-
-Every now and then we get someone who hears we're having a conference here who is a Christian moocher. These kind of people will pray upon your sympathy and make you think that they're really in sad shape, and only you can help them.
-
-If some panhandling, mooching Christian comes up to you and says, I'm brother so-and-so, forget it, I try to protect the sheep around here as much as possible, but I cannot stand at all the doors and filter out some of the panhandlers that come through.
-
-So every now and then you have to be alert when we have these conferences so that you don't get taken in by someone of this sort. There will not be a tour of TNP Saturday night. It was announced, but it won't be. So we can cancel that on the agenda.
-
 Now in preparation for the study of the Word of God this evening, the next few moments are devoted to silent prayer. The objective is to give you privacy of the priesthood in order that you might <span class="theological-term">rebound</span> if necessary, and in order that you might be <span class="theological-term">filled with the Spirit</span>, which is the only approach to the Word of God.
 
 The Lord once said to Moses, take off your shoes, you stand on holy ground. In this dispensation, it's be filled with the Spirit that you might take in the Word of God.
