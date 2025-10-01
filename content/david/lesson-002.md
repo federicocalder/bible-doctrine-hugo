@@ -25,29 +25,21 @@ This can only be accomplished by being in <span class="theological-term">fellows
 
 And therefore, to give you privacy for preparation for the study of the Word of God, let us pray. (allow a moment for confession)
 
-We are grateful to thee, Heavenly Father, that ours is the privilege of spending this holiday around the Word of God. Every day that we are consistent in taking in the Word, this is just that much closer to the <span class="theological-term">super-grace</span> life and to the <span class="theological-term">capacity for happiness</span> which belongs to the super-grace believer.
+We are grateful to thee, Heavenly Father, that ours is the privilege of study the Word of God. Every day that we are consistent in taking in the Word, this is just that much closer to the <span class="theological-term">super-grace</span> life and to the <span class="theological-term">capacity for happiness</span> which belongs to the super-grace believer.
 
-Now, Father, we recognize that this is the day when families get together, and this is the day when many people who do not have families are lonely and left out. We thank thee that we can gather around the Word of God tonight where no one is left out, where no one is excluded.
+Now, Father thank you for that manna from heaven, that bread of life which is so important in our daily walk. to that end, we ask that God the Holy Spirit will sanctify this spiritual food to the nourishment of our souls. Amen.
 
-And so, as we fellowship in the Word of God tonight, whatever many have missed by way of the family gatherings or by way of eating or dining or having fellowship with someone today, we pray that God the Holy Spirit will provide for them, as for all of us, that manna from heaven, that bread of life which is so important in our daily walk.
+First Samuel, chapter 16, verse 13. "Then Samuel took the horn of oil".
 
-To that end, we ask that God the Holy Spirit will sanctify this spiritual food to the nourishment of our souls.
-
-Amen.
-
-First Samuel, chapter 16, verse 13. Ordinarily, I would try to review, but we have a long way to go this weekend. And if you weren't here this morning, that's too bad.
-
-You'll have to catch it on tape, which one of my friends calls instant replay. All right, in verse 13. Then Samuel took the horn of oil.
-
-The horn of oil is the way in which a commission was given in the ancient world. And anointed him, this is David. The word anointed, the word anointed, is the <span class="hebrew">cal</span> imperfect of <span class="hebrew">mashach</span>.
-
-M-A-S-H-A-C-H. And in the <span class="hebrew">cal</span> stem, this means to commission. And this is God's promise that David will someday be king.
+The horn of oil is the way in which a commission was given in the ancient world. And anointed him, this is David. The word anointed, the word anointed, is the <span class="hebrew">Qal</span> imperfect of <span class="hebrew">mashach</span>. M-A-S-H-A-C-H. And in the <span class="hebrew">cal</span> stem, this means to commission. And this is God's promise that David will someday be king.
 
 And I want you to notice that David was promoted by the promise of God, but not the reality of experience at the time that he reached <span class="theological-term">super grace</span>.
 
 > **God did not leave David in doubt that someday he would be the king of Israel. But before he reaches that point, there will be many tests, and he will have many opportunities to see the grace of God in action.**
 
-So he anointed him in the midst of his brethren. There were seven brothers beside David. All of them had the same opportunity to take in doctrine.
+So he anointed him in the midst of his brethren. 
+
+There were seven brothers beside David. All of them had the same opportunity to take in doctrine.
 
 Only one of them made it. Now, here's a family of eight boys. One of them is in super grace.
 
@@ -67,29 +59,37 @@ They all had the same environment. Only one of them ever made it. And that one i
 
 Later on, when we study his name, you'll begin to see something as to why. But right now, in anticipation, David was the only one who consistently <span class="theological-term">gapped</span> it to super grace. And at the time of this anointing, David's about 18 years old, and he is a super-grace believer.
 
-He has already arrived at that point. So he was anointed in the midst of his brethren. And then we read, The Spirit of the Lord came upon him.
+He has already arrived at that point. So he was anointed in the midst of his brethren. And then we read, 
 
-Now, this is actually <span class="hebrew">Ruach Elohim</span>, R-U-A-C-H-E-L-A-O-H-I-M, the Spirit of <span class="hebrew">Elohim</span>, the Spirit of God. This is a reference to God the Holy Spirit. It came upon him, this is the <span class="hebrew">cal</span> imperfect, from the verb <span class="hebrew">salak</span>.
+The Spirit of the Lord came upon him.
 
-T-S-A-L-A-C-H, <span class="hebrew">salak</span>. <span class="hebrew">Salak</span> means a lot of things, but it means, for example, to pass over. It means to prosper.
+Now, this is actually <span class="hebrew">Ruach Elohim</span>, R-U-A-C-H-E-L-O-H-I-M, the Spirit of <span class="hebrew">Elohim</span>, the Spirit of God. This is a reference to God the Holy Spirit. 
+
+It came upon him, this is the <span class="hebrew">Qal</span> imperfect, from the verb <span class="hebrew">Tsalak</span>.
+
+T-S-A-L-A-C-H, <span class="hebrew">Tsalak</span>. <span class="hebrew">Tsalak</span> means a lot of things, but it means, for example, to pass over. It means to prosper.
 
 Here it means to descend upon, to produce prosperity. God the Holy Spirit descended upon David to produce prosperity. Now, you have to remember that David has been a believer for a long time.
 
 David is a believer in the Lord Jesus Christ. He has personally received Christ as his Savior. He has been saved long enough to enter super grace, which means he's probably been saved for at least six or seven or maybe eight or nine years.
 
-He has been consistent in the function of gap. And this is his first contact, at least the first recorded contact, with God the Holy Spirit. Now, notice the difference.
+He has been consistent in the function of GAP. And this is his first contact, at least the first recorded contact, with God the Holy Spirit. Now, notice the difference.
 
 The moment that you believed in Jesus Christ, God the Holy Spirit <span class="theological-term">indwelt</span> you. God the Holy Spirit made his home in you as of the moment you were saved, and he will never leave. Now, you may be filled with the Spirit in fellowship, or you may <span class="theological-term">grieve the Spirit</span> or <span class="theological-term">quench the Spirit</span>.
 
 But God the Holy Spirit always resides in you. This means there's a difference. And this is the difference.
 
-In the dispensation of Israel, the ministry of God the Holy Spirit was much different from what it is today. The reason being that the Lord Jesus Christ had not come in the flesh, had not gone to the cross, and had not ascended to the right hand of the Father. In other words, the Holy Spirit was not yet given because Christ was not yet glorified.
+David lived in the dispensation of Israel, you live in the dispensation of the church, in the dispensation of Israel the ministry of God the Holy Spirit was much different from what it is today. 
+
+The reason being that the Lord Jesus Christ had not come in the flesh, had not gone to the cross, and had not ascended to the right hand of the Father. 
+
+In other words, the Holy Spirit was not yet given because Christ was not yet glorified.
 
 Now, there's a difference here. And here is the principle.
 
 ### The Doctrine of the Ministry of the Holy Spirit in the Age of Israel
 
-1. **The Holy Spirit indwelt some Old Testament believers to perform special functions.** But he did not indwell all believers, or even 90% of believers in any generation.
+1. **The Holy Spirit indwelt some Old Testament believers to perform special functions.** But he did not indwelt all believers, or even 90% of believers in any generation.
 
    **Nine illustrations of the ministry of the Holy Spirit to an Old Testament saint:**
 
@@ -99,11 +99,13 @@ Now, there's a difference here. And here is the principle.
    4. Joshua - Numbers 27:18
    5. The judges - For example, Othniel (Judges 3:10), Gideon (Judges 6:4, 34), Jephthah (Judges 11:29), Samson (Judges 13:25; 14:6; 15:14)
    6. Kings of Israel - Saul (1 Samuel 10:9-10), David (1 Samuel 16:13, our passage)
-   7. Daniel - Daniel 4:8; 5:11-12
+   7. Daniel - Daniel 4:8; 5:11-12, 6:3
    8. Post-exilic rulers - Zechariah 4:3, 12, 14
    9. Old Testament writers - 1 Peter 1:11
 
-   It was very rare for God the Holy Spirit to ever have any ministry to an ordinary believer. For example, God the Holy Spirit had no relationship with the father of David, Jesse. He had no relationship with his eldest brother, Eliab. He had no relationship with any of his other brothers. He had no relationship with anyone in David's family, even though they were believers. Only with David. Only special believers.
+   It was very rare for God the Holy Spirit to ever have any ministry to an ordinary believer. 
+   
+   For example, God the Holy Spirit had no relationship with the father of David, Jesse. He had no relationship with his eldest brother, Eliab. He had no relationship with any of his other brothers. He had no relationship with anyone in David's family, even though they were believers. Only with David. Only special believers.
 
 2. **The believers who had God the Holy Spirit in the Old Testament could be disciplined by the removal of God the Holy Spirit.**
 
@@ -112,21 +114,11 @@ Now, there's a difference here. And here is the principle.
 
 3. **Believers of the Old Testament could obtain the Holy Spirit by request.** They could ask for the Holy Spirit (2 Kings 2:9-10; Luke 11:13). Hold the place and turn to Luke 11.
 
-This is one that needs a little explanation due to the fact that the Holy Rollers have corrupted it. We'll start at Luke 11, 9. By the way, if you're a Holy Roller, a Pentecostal, a four-square, then you're out of place.
+This is one that needs a little explanation due to the fact that some religious have corrupted it. We'll start at Luke 11, 9. 
 
-You don't belong here. This is where the Word of God is taught. This is where Jesus Christ is honored.
+And I say unto you, Jesus is talking to the disciples.
 
-And you are in apostasy. If you think that you've spoken in tongues, then you are a confused, mixed-up person. You're possibly a psychopathic personality.
-
-And you may even be in psychotic reversionism. But I'll tell you one thing. You're in the wrong pew.
-
-There is nothing but evil connected with the Holy Rollers, the whole tongues movement, and they are not welcome in this place at any time. We separate ourselves from religious evil. It is demonism that keeps this organization going.
-
-And even though believers cannot be <span class="theological-term">demon-possessed</span>, they can be under demon influence by the opening of the matiotes of the soul through negative volition toward doctrine. If you are a Holy Roller, you're in the wrong place. And I'll tell you nose to nose and face to face how evil, how vicious, how monstrous is the tongues movement, any time, anywhere.
-
-Now, that's what happened to this passage, and that's why we need to stop and take a look. Luke 11, 9. And I say unto you, Jesus is talking to the disciples.
-
-Understand that they can have the Holy Spirit on request. He wants them to further understand that they need the Holy Spirit badly because they are Old Testament saints at the moment, and they need to be sustained by the ministry of God the Holy Spirit. So he says, "Ask, and it shall be given you."
+So they understand that they can have the Holy Spirit on request. He wants them to further understand that they need the Holy Spirit badly because they are Old Testament saints at the moment, and they need to be sustained by the ministry of God the Holy Spirit. So he says, "Ask, and it shall be given you."
 
 This is to ask for the Holy Spirit. Many of you have quoted this as a promise, and really, the principle is there, but you have no right to use this in your prayer promises. You can ask until you overflow and effervesce, but you still aren't going to get what you want under this passage.
 
@@ -140,23 +132,25 @@ And then he illustrates in verse 11, If a son shall ask bread of anyone who is a
 
 Not a normal father, anyway. Or if he asks a fish, will he instead of a fish give him a snake? And the answer is no.
 
-That's ludicrous. So this is illustration by the ludicrous. Or if he shall ask for an egg, even soft boil, once over easy, instead of once over easy, will he put a scorpion on his plate?
+That's ludicrous. So this is illustration by the ludicrous. Or if he shall ask for an egg, even soft boil, once over easy, instead of once over easy, will he put a scorpion on his plate? And the answer is no. 
 
-And the answer is no. Now, verse 13, If therefore you, being evil, know how to give good gifts to your children, how much more shall your heavenly Father give the Holy Spirit to them who ask for him. Now, this was the pattern for the Old Testament.
+Now, verse 13, If therefore you, being evil, know how to give good gifts to your children, how much more shall your heavenly Father give the Holy Spirit to them who ask for him. This was the pattern for the Old Testament.
 
 There were two ways you could get the Holy Spirit as a believer. One, God at some time during your <span class="theological-term">phase two</span> experience sovereignly bestowed the Holy Spirit as he did in the case of David. Or two, certain believers could ask and receive the Holy Spirit.
 
-This was the only way that believers could have a relationship with the Holy Spirit in Old Testament times. So point three again, believers of the Old Testament could obtain the Holy Spirit by request. Now, before you get back, turn to John chapter 20, verse 22 for point four.
+This was the only way that believers could have a relationship with the Holy Spirit in Old Testament times. 
 
-John 20, 22.
+Now, before you get back, turn to John chapter 20, verse 22 for point four.
 
-4. **Just before the ascension and without their request, since they never did ask, Jesus gave the Holy Spirit to ten of the disciples.** Of course, he didn't give it to Judas Iscariot.
+John 20:22
 
-He's an unbeliever. Thomas wasn't there, so Thomas didn't get in on it. But God the Holy Spirit was given to the disciples minus Thomas to sustain them for fifty days between the resurrection and the day of Pentecost.
+4. **Just before the ascension and without their request, since they never did ask, Jesus gave the Holy Spirit to ten of the disciples.** Of course, he didn't give it to Judas Iscariot. He's an unbeliever. Thomas wasn't there, so Thomas didn't get in on it. 
 
-John 20, 22. And when he had said this, Jesus is speaking, he breathed on them and saith unto them, Receive ye the Holy Spirit. The Greek word is pneuma.
+But God the Holy Spirit was given to the disciples minus Thomas to sustain them for fifty days between the resurrection and the day of Pentecost.
 
-There is no word for ghost in the Greek. Receive ye the Holy Spirit. So God the Holy Spirit was given to ten of the disciples because God knew that the disciples could not last fifty days without divine help.
+John 20:22. And when he had said this, Jesus is speaking, he breathed on them and saith unto them, Receive ye the Holy Spirit. The Greek word is Pneuma.
+
+Receive ye the Holy Spirit. So God the Holy Spirit was given to ten of the disciples because God knew that the disciples could not last fifty days without divine help.
 
 And therefore, the last fifty days before the age of Israel was interrupted by the church age, God the Holy Spirit was provided for the knuckleheaded disciples.
 
@@ -164,356 +158,53 @@ And therefore, the last fifty days before the age of Israel was interrupted by t
 
 6. **In the church age, the believer cannot lose the indwelling Holy Spirit. He can only lose the filling of the Spirit.**
 
-Personal sin.
-At the point of salvation,
-every believer enters
-into union with Christ.
-That's the top circle.
-Every believer also
-enters into fellowship
-with God in time.
-This is the place
-of the filling of the Spirit.
-When you sin,
-you're <span class="theological-term">carnal</span>,
-<span class="theological-term">out of fellowship</span>.
-When you rebound,
-you come back
-under the filling of the Spirit again.
+Personal sin. At the point of salvation, every believer enters into union with Christ. That's the top circle. Every believer also enters into fellowship with God in time. This is the place of the filling of the Spirit. When you sin, you're <span class="theological-term">carnal</span>, <span class="theological-term">out of fellowship</span>. When you rebound, you come back under the filling of the Spirit again.
 
 7. **In the previous dispensation (the age of Israel), the Holy Spirit regenerated at the point of salvation. But now, in the church age, God the Holy Spirit accomplishes five things at the point of salvation.**
 
-People were saved
-in Old Testament times
-the same way
-they are saved right now,
-by believing in Christ.
-Christ was revealed
-in a little different manner,
-because the canon of Scripture
-was not yet completed,
-and because the Incarnation
-had not occurred historically.
-But,
-people were still saved
-the same way.
-Abraham believed
-in the Lord,
-and it was credited
-to his account
-for righteousness,
-Genesis 15, 6.
-Now,
-at the point of <span class="theological-term">regeneration</span>,
-God the Holy Spirit
-accomplished it
-for Old Testament saints.
-He did one thing
-at the point of salvation
-for the Old Testament believer.
-But,
-he does five
-of the 36 things
-in this dispensation.
-The first, then,
-is regeneration,
-John 3, 5,
-and Titus 3, 5.
-Secondly,
-<span class="theological-term">the baptism of the Spirit</span>,
-Acts 1, 5,
-1 Corinthians 12, 13.
-That's the ministry
-whereby God the Holy Spirit
-enters every believer
-into union with Christ.
-And it is,
-in contrast,
-to regeneration,
-whereby God the Holy Spirit
-causes us to be born
-into the family of God.
-So we're all born
-into the family of God
-the same way,
-the ministry of the Spirit.
-The third thing God does,
-the God the Holy Spirit does,
-is to stamp us
-with a seal.
-We are sealed
-by the ministry of the Spirit,
-2 Corinthians 1, 22,
-Ephesians 1, 13, and 4, 30.
-This guarantees <span class="theological-term">eternal security</span>.
-4.
-He sovereignly
-and graciously
-bestows upon every believer
-at least one <span class="theological-term">spiritual gift</span>.
-1 Corinthians 12, 12 and 13.
-One spiritual gift
-for every believer.
-And 5.
-He indwells every believer
-at the point of salvation,
-Romans 8, 9,
-1 Corinthians 3, 16,
-1 Corinthians 6, 19 and 20,
-Galatians 3, 2.
+People were saved in Old Testament times the same way they are saved right now, by believing in Christ. Christ was revealed in a little different manner, because the canon of Scripture was not yet completed, and because the Incarnation had not occurred historically. But, people were still saved the same way. Abraham believed in the Lord, and it was credited to his account for righteousness, Genesis 15:6.
+
+Now, at the point of <span class="theological-term">regeneration</span>, God the Holy Spirit accomplished it for Old Testament saints. He did one thing at the point of salvation for the Old Testament believer. But, he does five of the 36 things in this dispensation.
+
+The first, then, is regeneration, John 3:5, and Titus 3:5.
+
+Secondly, <span class="theological-term">the baptism of the Spirit</span>, Acts 1:5, 1 Corinthians 12:13. That's the ministry whereby God the Holy Spirit enters every believer into union with Christ. And it is, in contrast, to regeneration, whereby God the Holy Spirit causes us to be born into the family of God. So we're all born into the family of God the same way, the ministry of the Spirit.
+
+The third thing God does, the God the Holy Spirit does, is to stamp us with a seal. We are sealed by the ministry of the Spirit, 2 Corinthians 1:22, Ephesians 1:13, and 4:30. This guarantees <span class="theological-term">eternal security</span>.
+
+4. He sovereignly and graciously bestows upon every believer at least one <span class="theological-term">spiritual gift</span>. 1 Corinthians 12:12 and 13. One spiritual gift for every believer.
+
+And 5. He indwells every believer at the point of salvation, Romans 8:9, 1 Corinthians 3:16, 1 Corinthians 6:19 and 20, Galatians 3:2.
 
 8. **In John 7:39, we have a principle: The Holy Spirit was not yet given because Christ was not yet glorified.**
-In John chapter 20,
-verse 22,
-the Holy Spirit was given
-under the conditions
-specified for Old Testament saints.
-Therefore,
-the ministry of the Holy Spirit
-for the 50 days
-before Pentecost
-was an Old Testament ministry.
-All right.
-Verse 14.
-1 Samuel 6, 14.
-David did not ask for the Holy Spirit.
-David did not solicit
-the ministry of the Holy Spirit.
-God the Holy Spirit
-sovereignly came to help David
-at the point of his anointing.
-From that time on,
-David was pinpointed
-in the <span class="theological-term">angelic conflict</span>.
-David was to be the key
-for the whole <span class="theological-term">Davidic covenant</span>,
-for the <span class="theological-term">Messianic line</span>,
-and therefore God the Holy Spirit
-will act as his protector
-in the spiritual conflict
-and will empower and endue him
-for the conflicts
-which he must face on earth.
-But remember
-that the primary source of power
-for any Old Testament saint
-was the Bible doctrine content
-in his soul.
-1 Samuel 16, 14.
-But the Spirit of the Lord,
-<span class="hebrew">Ruach Adonai</span>,
-R-U-A-C-H,
-R-U-A-C-H, Jehovah.
-This is a reference again
-to God the Holy Spirit.
-<span class="hebrew">Ruach Adonai</span> refers to the Holy Spirit
-whose ministry in the previous dispensation
-was specialized,
-and therefore,
-as part of reversionistic discipline,
-the Spirit was removed from Saul.
-So the Holy Spirit departed.
-The cow perfect of <span class="hebrew">sewer</span>,
-<span class="hebrew">sewer</span> usually means to desert,
-desert.
-Here it just means to be removed.
-And this was a permanent thing.
-Saul is now officially in <span class="theological-term">reversionism</span>. For him to get there, Saul had to go negative toward Bible doctrine.
-That's taught in 1 Chronicles 10, 13, and 14.
-Then he had to get <span class="theological-term">scar tissue</span>
-on the left bank of his soul.
-And then he had to begin
-a frantic search for happiness
-which put scar tissue
-on the right bank of his soul.
-And then he had <span class="theological-term">emotional revolt</span>
-of the soul,
-and at the same time
-the attack of <span class="theological-term">Mataiotes</span>.
-This is why he has <span class="theological-term">demon influence</span>
-in his life.
-King Saul was a believer
-under demon influence.
-And then,
-after emotional revolt,
-he began to practice
-reverse process reversionism.
-And while at this stage
-he is a mental attitude reversionist,
-before this chapter is over,
-he has his first attack
-of manic depressive,
-and he becomes a psychotic,
-a periodic <span class="theological-term">psychotic reversionism</span>.
-Most people who become psychotic
-always do so
-by way of <span class="theological-term">mental attitude sins</span>.
-jealousy,
-bitterness,
-vindictiveness,
-implacability,
-hatred,
-guilt complex.
-Many people crack up
-with guilt complex.
-No one ever simply jumped
-into a psychotic condition,
-not unless they had it inherently.
-Most people become psychotic.
-They acquire that condition
-of mental illness,
-and they do so,
-first of all,
-by mental attitude sins
-in the soul.
-At this point,
-David is commissioned
-king of Israel,
-and eventually he will arrive there.
-The promise is given
-through the anointing.
-Many times David
-will have to remember
-this anointing.
-Many times this anointing
-will be a temptation
-to cut some corners.
-But David always waited
-on the Lord.
-David is one of the greatest
-believers of all time.
-He had the capacity.
-He had the doctrine.
-He knew that God
-could give
-as no one
-could ever give.
-He understood
-something of the character
-of God,
-something of God's
-capacity to give,
-something of God's
-ability to give,
-and therefore
-always David
-came back to this.
-In other words,
-David as a born-again
-believer
-had so much information
-on the essence box
-that he didn't need
-promises
-like you often
-need promises.
-In fact,
-he cooked up
-some of the promises
-in the Psalms
-and elsewhere.
-Why?
-Because
-David as a
-super-grace believer
-was occupied
-with the person
-of Christ.
-There is only
-one celebrity
-for believers
-in any dispensation.
-There are many
-super-grace heroes,
-but one celebrity,
-and that one celebrity
-is the Lord Jesus Christ.
-And David was
-completely occupied
-with the person
-of Christ,
-and therefore
-many times
-he demonstrated
-how he could
-wait on the Lord.
-He was promoted
-in a wonderful way
-in Saul's court.
-He went back
-to the sheep.
-Many, many times
-he could have gone
-the human viewpoint route,
-and he could have
-achieved some fame.
-But David took
-the attitude,
-if God doesn't
-promote you,
-you're not promoted.
-And many times
-when David could
-have advanced himself,
-he refused to do so.
-He would stop
-and say,
-if God doesn't
-provide it for me,
-I don't want it.
-When God provides it,
-it's permanent
-and it's wonderful
-and I have the capacity
-for it.
-But if God doesn't
-provide it,
-it's not worth it.
-And therefore
-I will wait
-until God provides it.
-And God is fair
-and God is righteous
-and God has never
-let one believer down
-and God has provided
-things for me
-in eternity past
-that I know not of
-as yet.
-But I will know
-these things.
-I will wait
-for these things.
-Now you can't say
-that tonight
-unless you have
-achieved
-super grace.
-And some of you
-aren't even close.
-So don't try
-to run around
-and mouth
-empty words.
-You have to back it
-with doctrine
-in your soul
-and if you don't
-have doctrine
-in your soul,
-you're not ready
-for that yet.
-And I suppose
-that you will
-cut corners
-and you will
-try to push
-yourself
-and you will
-try to PR
-yourself into
-something.
+
+In John chapter 20, verse 22, the Holy Spirit was given under the conditions specified for Old Testament saints. Therefore, the ministry of the Holy Spirit for the 50 days before Pentecost was an Old Testament ministry.
+
+All right. Verse 14. 1 Samuel 6:14.
+
+David did not ask for the Holy Spirit. David did not solicit the ministry of the Holy Spirit. God the Holy Spirit sovereignly came to help David at the point of his anointing. From that time on, David was pinpointed in the <span class="theological-term">angelic conflict</span>. David was to be the key for the whole <span class="theological-term">Davidic covenant</span>, for the <span class="theological-term">Messianic line</span>, and therefore God the Holy Spirit will act as his protector in the spiritual conflict and will empower and endue him for the conflicts which he must face on earth. But remember that the primary source of power for any Old Testament saint was the Bible doctrine content in his soul.
+1 Samuel 16:14. But the Spirit of the Lord, <span class="hebrew">Ruach Adonai</span>, R-U-A-C-H, R-U-A-C-H, Jehovah. This is a reference again to God the Holy Spirit. <span class="hebrew">Ruach Adonai</span> refers to the Holy Spirit whose ministry in the previous dispensation was specialized, and therefore, as part of reversionistic discipline, the Spirit was removed from Saul.
+
+So the Holy Spirit departed. The Qal perfect of <span class="hebrew">suwr</span>, <span class="hebrew">suwr</span> usually means to desert, desert. Here it just means to be removed. And this was a permanent thing.
+
+Saul is now officially in <span class="theological-term">reversionism</span>. For him to get there, Saul had to go negative toward Bible doctrine. That's taught in 1 Chronicles 10:13 and 14. Then he had to get <span class="theological-term">scar tissue</span> on the left bank of his soul. And then he had to begin a frantic search for happiness which put scar tissue on the right bank of his soul. And then he had <span class="theological-term">emotional revolt</span> of the soul, and at the same time the attack of <span class="theological-term">Mataiotes</span>. This is why he has <span class="theological-term">demon influence</span> in his life. King Saul was a believer under demon influence.
+
+And then, after emotional revolt, he began to practice reverse process reversionism. And while at this stage he is a mental attitude reversionist, before this chapter is over, he has his first attack of manic depressive, and he becomes a psychotic, a periodic <span class="theological-term">psychotic reversionism</span>.
+
+Most people who become psychotic always do so by way of <span class="theological-term">mental attitude sins</span>. Jealousy, bitterness, vindictiveness, implacability, hatred, guilt complex. Many people crack up with guilt complex. No one ever simply jumped into a psychotic condition, not unless they had it inherently. Most people become psychotic. They acquire that condition of mental illness, and they do so, first of all, by mental attitude sins in the soul.
+At this point, David is commissioned king of Israel, and eventually he will arrive there. The promise is given through the anointing. Many times David will have to remember this anointing. Many times this anointing will be a temptation to cut some corners. But David always waited on the Lord.
+
+David is one of the greatest believers of all time. He had the capacity. He had the doctrine. He knew that God could give as no one could ever give. He understood something of the character of God, something of God's capacity to give, something of God's ability to give, and therefore always David came back to this.
+
+In other words, David as a born-again believer had so much information on the essence box that he didn't need promises like you often need promises. In fact, he cooked up some of the promises in the Psalms and elsewhere. Why? Because David as a super-grace believer was occupied with the person of Christ.
+
+There is only one celebrity for believers in any dispensation. There are many super-grace heroes, but one celebrity, and that one celebrity is the Lord Jesus Christ. And David was completely occupied with the person of Christ, and therefore many times he demonstrated how he could wait on the Lord.
+
+He was promoted in a wonderful way in Saul's court. He went back to the sheep. Many, many times he could have gone the human viewpoint route, and he could have achieved some fame. But David took the attitude, if God doesn't promote you, you're not promoted. And many times when David could have advanced himself, he refused to do so. He would stop and say, if God doesn't provide it for me, I don't want it. When God provides it, it's permanent and it's wonderful and I have the capacity for it. But if God doesn't provide it, it's not worth it. And therefore I will wait until God provides it.
+
+And God is fair and God is righteous and God has never let one believer down and God has provided things for me in eternity past that I know not of as yet. But I will know these things. I will wait for these things.
+
+Now you can't say that tonight unless you have achieved super grace. And some of you aren't even close. So don't try to run around and mouth empty words. You have to back it with doctrine in your soul and if you don't have doctrine in your soul, you're not ready for that yet. And I suppose that you will cut corners and you will try to push yourself and you will try to PR yourself into something.
 
 have.
 
