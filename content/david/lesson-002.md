@@ -278,7 +278,7 @@ Looks like this. B-A-A-T. <span class="hebrew">Ba'at</span>, in the <span class=
 
 In the Qal stem, for example, <span class="hebrew">Ba'at</span> would mean to be frightened. But in the <span class="hebrew">Piel</span> stem, it means to be totally, completely terrified, to bereft of the ability to think, and therefore to be terrified.
 
-so literally it should be tranalated, The spirit of the Lord, the Holy Spirit, departed from Saul. There is the beginning of discipline for reversionism. While a spirit of evil discipline from the Lord, it was evil to Saul, but anything from the Lord is not evil.
+so literally it should be translated, The spirit of the Lord, the Holy Spirit, departed from Saul. There is the beginning of discipline for reversionism. While a spirit of evil discipline from the Lord, it was evil to Saul, but anything from the Lord is not evil.
 
 It means evil discipline. Terrified him. In other words, he began to have serious mental aberrations which are indicative of the beginning of a psychotic condition.
 
@@ -354,7 +354,7 @@ But he is trained to fight. And by the way, God the Holy Spirit put this in here
 
 All right, I have seen a skillful musician. But that isn't all. You can bring him into the court.
 
-Apparently, the person who made the recommendation was an undersecretary of the Department of Defense. The reason is becuase he knows something about David. And the reason he knows something about David is because when David went off for training, reserve training, when at night in the barracks, he'd play. And apparently, this guy made an inspection and heard David play.
+Apparently, the person who made the recommendation was an undersecretary of the Department of Defense. The reason is because he knows something about David. And the reason he knows something about David is because when David went off for training, reserve training, when at night in the barracks, he'd play. And apparently, this guy made an inspection and heard David play.
 
 So he's impressed with David. He says, David already has graduated from certain of our schools where he is already an official soldier. He's an <span class="hebrew">Ish mil</span>, <span class="hebrew">Chamah</span>.
 
@@ -387,7 +387,7 @@ Then one of the staff answered and said, Behold, I have seen a son of Jesse of B
 
 Whatever else could be said about you, two of these things can belong to you any time you decide to go that way. Constantly learning doctrine and the Lord with you. Now, verse 19.
 
-Therefore Saul sent messengers to Jesse and said, Send me David thy son, who is with the sheep, how did they know that? They read his personel file. They had a whole file on him.
+Therefore Saul sent messengers to Jesse and said, Send me David thy son, who is with the sheep, how did they know that? They read his personnel file. They had a whole file on him.
 
 All they went to the department of defense and just checked his file. They found out that he was working with the sheep. Now, that with the sheep is important.
 
@@ -565,7 +565,7 @@ And by the way, for those of you who are lonely today, David had lots of lonelin
 
 David stayed with the Sheep. Why? 
 
-Because David had a very clear perception of Phase 2. He knew that the only thing that counted in phase 2 outside of doctrine is what God gave him and that nothing else was worth it, that it was a sham, it was superficial, that it would only bring unhappiness, and misisery, not blessing.
+Because David had a very clear perception of Phase 2. He knew that the only thing that counted in phase 2 outside of doctrine is what God gave him and that nothing else was worth it, that it was a sham, it was superficial, that it would only bring unhappiness, and misery, not blessing.
 
 And David was one of the smartest people who ever lived because he rejected time and time again, he rejected the superficialities of life. 
 
@@ -593,7 +593,7 @@ You want to rub elbows with reversionism again?
 
 Get this bird. And Jesse took an ass. Jesse was an ass taking an ass.
 
-And get this, a bottle of wine, Chateau Lafitte Rothschild, Romanee Conti, and a goat, considered a delicacy in Israel, and sent them by David, his son, to Saul. Get this, if God doesn't promote you, you're not promoted, Jesse.
+And get this, a bottle of wine, Chateau Lafitte Rothschild, Romani Conti, and a goat, considered a delicacy in Israel, and sent them by David, his son, to Saul. Get this, if God doesn't promote you, you're not promoted, Jesse.
 
 David isn't promoted because you sent a good bottle of wine, a lot of bread, and an animal for the king to eat.
 
@@ -625,7 +625,7 @@ Greatly is an adverb to indicate that David was being promoted by the Lord. M-E-
 
 And he became, <span class="hebrew">Qal</span> imperfect of <span class="hebrew">Ha-Yah</span>, his armor bearer. No, no. <span class="hebrew">Ha-Yah</span>.
 
-No. <span class="hebrew">Qal</span> active participle of <span class="hebrew">Nasah</span>, means to lift up, N-A-S-A-H, plus the word for armor or the military accordaments wrapped around. The word is <span class="hebrew">calim</span>, or weapons.
+No. <span class="hebrew">Qal</span> active participle of <span class="hebrew">Nasah</span>, means to lift up, N-A-S-A-H, plus the word for armor or the military accoutrements wrapped around. The word is <span class="hebrew">calim</span>, or weapons.
 
 He became the one who carried his weapons, literally, and it really is an idiom for an aide-a-camp. He became his aide. And in verse 22, this became a permanent arrangement, because Saul requested of Jesse that he be kept on permanently as his aide.
 
@@ -685,4 +685,4 @@ The depression departed. This is a temporary departure. The word is <span class=
 
 And therefore, we have at this point David at his first promotional stage. 
 
-Thank you father for the privilige of studying these things may God the holy spirit make it a challenge to our lives for we ask it in Christ's name, Amen.
+Thank you father for the privilege of studying these things may God the holy spirit make it a challenge to our lives for we ask it in Christ's name, Amen.
